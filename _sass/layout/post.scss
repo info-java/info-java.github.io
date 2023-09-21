@@ -47,18 +47,15 @@
 }
 
 h1 + .post-meta {
-  > span + span::before {
+  span + span::before {
     @include dot;
   }
 
-  em,
-  time {
-    color: var(--text-color);
-  }
-
   em {
+    @extend %text-color;
+
     a {
-      color: inherit;
+      @extend %text-color;
     }
   }
 }
@@ -76,7 +73,7 @@ h1 + .post-meta {
     line-height: 1.2rem;
 
     > a {
-      @extend %text-highlight;
+      color: var(--text-color);
 
       &:hover {
         @extend %link-hover;
@@ -102,46 +99,51 @@ h1 + .post-meta {
     .share-icons {
       font-size: 1.2rem;
 
-      > * {
-        margin-left: 0.25rem;
+      > i {
+        position: relative;
+        bottom: 1px;
+
+        @extend %cursor-pointer;
 
         &:hover {
-          i {
+          @extend %btn-share-hovor;
+        }
+      }
+
+      a {
+        &:not(:last-child) {
+          margin-right: 0.25rem;
+        }
+
+        &:hover {
+          text-decoration: none;
+
+          > i {
             @extend %btn-share-hovor;
           }
         }
       }
 
-      button {
-        position: relative;
-        bottom: 2px;
-        padding: 0;
+      .fab {
+        &.fa-twitter {
+          @include btn-sharing-color(rgba(29, 161, 242, 1));
+        }
 
-        @extend %cursor-pointer;
-      }
+        &.fa-facebook-square {
+          @include btn-sharing-color(rgb(66, 95, 156));
+        }
 
-      a :hover {
-        text-decoration: none;
-      }
+        &.fa-telegram {
+          @include btn-sharing-color(rgb(39, 159, 217));
+        }
 
-      .fa-square-x-twitter {
-        @include btn-sharing-color(black);
-      }
+        &.fa-linkedin {
+          @include btn-sharing-color(rgb(0, 119, 181));
+        }
 
-      .fa-facebook-square {
-        @include btn-sharing-color(rgb(66, 95, 156));
-      }
-
-      .fa-telegram {
-        @include btn-sharing-color(rgb(39, 159, 217));
-      }
-
-      .fa-linkedin {
-        @include btn-sharing-color(rgb(0, 119, 181));
-      }
-
-      .fa-weibo {
-        @include btn-sharing-color(rgb(229, 20, 43));
+        &.fa-weibo {
+          @include btn-sharing-color(rgb(229, 20, 43));
+        }
       }
     } /* .share-icons */
 
@@ -155,6 +157,8 @@ h1 + .post-meta {
   line-height: 2rem;
 
   .post-tag {
+    background: var(--tag-bg);
+
     &:hover {
       @extend %link-hover;
       @extend %tag-hover;
@@ -164,6 +168,9 @@ h1 + .post-meta {
 }
 
 .post-navigation {
+  padding-top: 3rem;
+  padding-bottom: 4rem;
+
   .btn {
     @extend %btn-post-nav;
 
@@ -194,7 +201,7 @@ h1 + .post-meta {
       color: var(--text-muted-color);
       font-size: 0.65rem;
       text-transform: uppercase;
-      content: attr(aria-label);
+      content: attr(prompt);
     }
 
     &:first-child {
@@ -310,7 +317,9 @@ h1 + .post-meta {
     }
 
     ul {
-      padding-left: 0.75rem;
+      a {
+        padding-left: 2rem;
+      }
     }
   }
 }
@@ -322,10 +331,10 @@ h1 + .post-meta {
     @include label(1.1rem, 600);
   }
 
-  time {
+  em {
     @extend %normal-font-style;
 
-    color: var(--text-muted-color);
+    color: var(--relate-post-date);
   }
 
   p {
@@ -346,13 +355,17 @@ h1 + .post-meta {
   }
 }
 
-/* stylelint-disable-next-line selector-id-pattern */
-#disqus_thread {
-  min-height: 8.5rem;
-}
+#tail-wrapper {
+  min-height: 2rem;
 
-.utterances {
-  max-width: 100%;
+  > div:last-of-type {
+    margin-bottom: 2rem;
+  }
+
+  /* stylelint-disable-next-line selector-id-pattern */
+  #disqus_thread {
+    min-height: 8.5rem;
+  }
 }
 
 %btn-share-hovor {
@@ -383,7 +396,7 @@ h1 + .post-meta {
 }
 
 @media all and (max-width: 768px) {
-  .content > p > img {
+  .post-content > p > img {
     max-width: calc(100% + 1rem);
   }
 }

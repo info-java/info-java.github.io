@@ -7,7 +7,7 @@ function stopShimmer($node) {
 }
 
 export function imgLazy() {
-  const $images = $('main img[data-src]');
+  const $images = $('#core-wrapper img[data-src]');
 
   if ($images.length <= 0) {
     return;
