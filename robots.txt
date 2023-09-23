@@ -1,3 +1,0 @@
-User-agent: *
-Allow: /
-Sitemap: https://shopping01.guide365.kr/sitemap.xml
