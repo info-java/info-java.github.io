@@ -39,7 +39,8 @@ JMW드라이기의 디자인은 손에 쥐기 편하도록 인체공학적으로
 
 - 할인율과 원래가격: 24%  329,000   원
 - 가격: <span style='color:red'>63,370원</span>
-- 리뷰수: 4852  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7384575382&traceid=V0-153&itemId=19078926203&vendorItemId=81457140721)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7384575382&traceid=V0-153&itemId=19078926203&vendorItemId=81457140721)
 
 ---
 
@@ -56,7 +57,8 @@ JMW드라이기의 디자인은 손에 쥐기 편하도록 인체공학적으로
 
 - 할인율과 원래가격: 23%  369,000   원
 - 가격: <span style='color:red'>65,900원</span>
-- 리뷰수: 4852  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=3675802&traceid=V0-153&itemId=57974997&vendorItemId=3090910429)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=3675802&traceid=V0-153&itemId=57974997&vendorItemId=3090910429)
 
 ---
 
@@ -73,7 +75,8 @@ JMW드라이기의 디자인은 손에 쥐기 편하도록 인체공학적으로
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>69,000원</span>
-- 리뷰수: 922  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=159270509&traceid=V0-153&itemId=457438425&vendorItemId=4135149083)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=159270509&traceid=V0-153&itemId=457438425&vendorItemId=4135149083)
 
 ---
 
@@ -90,7 +93,8 @@ JMW드라이기의 디자인은 손에 쥐기 편하도록 인체공학적으로
 
 - 할인율과 원래가격: 22%  329,000   원
 - 가격: <span style='color:red'>84,000원</span>
-- 리뷰수: 16335  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1679879839&traceid=V0-153&itemId=7630312034&vendorItemId=74921516992)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1679879839&traceid=V0-153&itemId=7630312034&vendorItemId=74921516992)
 
 ---
 
@@ -107,7 +111,8 @@ JMW드라이기의 디자인은 손에 쥐기 편하도록 인체공학적으로
 
 - 할인율과 원래가격: 즉시할인가 70%  198,000   원
 - 가격: <span style='color:red'>77,830원</span>
-- 리뷰수: 717  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6455728094&traceid=V0-153&itemId=14032584249&vendorItemId=81280932487)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6455728094&traceid=V0-153&itemId=14032584249&vendorItemId=81280932487)
 
 ---
 
@@ -124,7 +129,8 @@ JMW드라이기의 디자인은 손에 쥐기 편하도록 인체공학적으로
 
 - 할인율과 원래가격: 42%  69,800   원
 - 가격: <span style='color:red'>37,400원</span>
-- 리뷰수: 6102  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4571067250&traceid=V0-153&itemId=5585010285&vendorItemId=72884305823)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4571067250&traceid=V0-153&itemId=5585010285&vendorItemId=72884305823)
 
 ---
 
@@ -141,7 +147,8 @@ JMW드라이기의 디자인은 손에 쥐기 편하도록 인체공학적으로
 
 - 할인율과 원래가격: 21%  469,000   원
 - 가격: <span style='color:red'>59,000원</span>
-- 리뷰수: 4852  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7280280575&traceid=V0-153&itemId=18585910708&vendorItemId=80480829716)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7280280575&traceid=V0-153&itemId=18585910708&vendorItemId=80480829716)
 
 ---
 
@@ -158,7 +165,8 @@ JMW드라이기의 디자인은 손에 쥐기 편하도록 인체공학적으로
 
 - 할인율과 원래가격: 28%  329,000   원
 - 가격: <span style='color:red'>84,000원</span>
-- 리뷰수: 16335  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=22172899&traceid=V0-153&itemId=86257965&vendorItemId=3146747645)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=22172899&traceid=V0-153&itemId=86257965&vendorItemId=3146747645)
 
 ---
 
@@ -175,7 +183,8 @@ JMW드라이기의 디자인은 손에 쥐기 편하도록 인체공학적으로
 
 - 할인율과 원래가격: 7%  43,000   원
 - 가격: <span style='color:red'>76,650원</span>
-- 리뷰수: 1024  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7193402032&traceid=V0-153&itemId=18167244511&vendorItemId=85704029078)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7193402032&traceid=V0-153&itemId=18167244511&vendorItemId=85704029078)
 
 ---
 
@@ -192,7 +201,8 @@ JMW드라이기의 디자인은 손에 쥐기 편하도록 인체공학적으로
 
 - 할인율과 원래가격: 25%  299,000   원
 - 가격: <span style='color:red'>65,900원</span>
-- 리뷰수: 16335  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=3675802&traceid=V0-153&itemId=18122019&vendorItemId=3090910427)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=3675802&traceid=V0-153&itemId=18122019&vendorItemId=3090910427)
 
 ---
 **JMW드라이기 구매시 주의점**

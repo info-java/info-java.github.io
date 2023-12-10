@@ -41,7 +41,8 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 - 할인율과 원래가격: 쿠폰할인가 14%  469,000   원
 - 가격: <span style='color:red'>141,550원</span>
-- 리뷰수: 2570  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6123921459&traceid=V0-153&itemId=11628014726&vendorItemId=78902632420)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6123921459&traceid=V0-153&itemId=11628014726&vendorItemId=78902632420)
 
 ---
 
@@ -58,7 +59,8 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 - 할인율과 원래가격: 27%  329,000   원
 - 가격: <span style='color:red'>128,120원</span>
-- 리뷰수: 16438  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253)
 
 ---
 
@@ -75,7 +77,8 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 - 할인율과 원래가격: 쿠폰할인가 21%  369,000   원
 - 가격: <span style='color:red'>113,250원</span>
-- 리뷰수: 2916  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 ---
 
@@ -92,7 +95,8 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 - 할인율과 원래가격: 24%  329,000   원
 - 가격: <span style='color:red'>90,400원</span>
-- 리뷰수: 2916  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 ---
 
@@ -109,7 +113,8 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>199,000원</span>
-- 리뷰수: 955  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6005286157&traceid=V0-153&itemId=10881359640&vendorItemId=78902715147)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6005286157&traceid=V0-153&itemId=10881359640&vendorItemId=78902715147)
 
 ---
 
@@ -126,7 +131,8 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 - 할인율과 원래가격: 63%  79,000   원
 - 가격: <span style='color:red'>142,000원</span>
-- 리뷰수: 101  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6905585793&traceid=V0-153&itemId=16623011746&vendorItemId=83807585380)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6905585793&traceid=V0-153&itemId=16623011746&vendorItemId=83807585380)
 
 ---
 
@@ -143,7 +149,8 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 - 할인율과 원래가격: 33%  329,000   원
 - 가격: <span style='color:red'>63,250원</span>
-- 리뷰수: 16438  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 ---
 
@@ -160,7 +167,8 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>77,900원</span>
-- 리뷰수: 2570  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=82998196838)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=82998196838)
 
 ---
 
@@ -177,7 +185,8 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>8,830원</span>
-- 리뷰수: 1081  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5240021570&traceid=V0-153&itemId=7399007603&vendorItemId=74690028855)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5240021570&traceid=V0-153&itemId=7399007603&vendorItemId=74690028855)
 
 ---
 
@@ -194,7 +203,8 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 - 할인율과 원래가격: 24%  329,000   원
 - 가격: <span style='color:red'>139,500원</span>
-- 리뷰수: 2916  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=11128687210&vendorItemId=86717153439)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=11128687210&vendorItemId=86717153439)
 
 ---
 **SSD 구매 시 주의점**

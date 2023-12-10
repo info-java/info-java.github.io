@@ -39,7 +39,8 @@ JMW 드라이기는 바람세기와 온도 조절이 자유롭고, 스타일링 
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>63,070원</span>
-- 리뷰수: 4764  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7384575382&traceid=V0-153&itemId=19078926203&vendorItemId=81457140721)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7384575382&traceid=V0-153&itemId=19078926203&vendorItemId=81457140721)
 
 ---
 
@@ -56,7 +57,8 @@ JMW 드라이기는 바람세기와 온도 조절이 자유롭고, 스타일링 
 
 - 할인율과 원래가격: 22%  369,000   원
 - 가격: <span style='color:red'>65,900원</span>
-- 리뷰수: 4764  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=3675802&traceid=V0-153&itemId=57974997&vendorItemId=3090910429)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=3675802&traceid=V0-153&itemId=57974997&vendorItemId=3090910429)
 
 ---
 
@@ -73,7 +75,8 @@ JMW 드라이기는 바람세기와 온도 조절이 자유롭고, 스타일링 
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>79,000원</span>
-- 리뷰수: 920  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1679879839&traceid=V0-153&itemId=7630312034&vendorItemId=74921516992)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1679879839&traceid=V0-153&itemId=7630312034&vendorItemId=74921516992)
 
 ---
 
@@ -90,7 +93,8 @@ JMW 드라이기는 바람세기와 온도 조절이 자유롭고, 스타일링 
 
 - 할인율과 원래가격: 22%  329,000   원
 - 가격: <span style='color:red'>66,000원</span>
-- 리뷰수: 16315  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=159270509&traceid=V0-153&itemId=457438425&vendorItemId=4135149083)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=159270509&traceid=V0-153&itemId=457438425&vendorItemId=4135149083)
 
 ---
 
@@ -107,7 +111,8 @@ JMW 드라이기는 바람세기와 온도 조절이 자유롭고, 스타일링 
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>105,000원</span>
-- 리뷰수: 920  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7612714839&traceid=V0-153&itemId=20165660443&vendorItemId=80493826072)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7612714839&traceid=V0-153&itemId=20165660443&vendorItemId=80493826072)
 
 ---
 
@@ -124,7 +129,8 @@ JMW 드라이기는 바람세기와 온도 조절이 자유롭고, 스타일링 
 
 - 할인율과 원래가격: 7%  43,000   원
 - 가격: <span style='color:red'>72,900원</span>
-- 리뷰수: 1019  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1736525335&traceid=V0-153&itemId=2955848684&vendorItemId=87510406158)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1736525335&traceid=V0-153&itemId=2955848684&vendorItemId=87510406158)
 
 ---
 
@@ -141,7 +147,8 @@ JMW 드라이기는 바람세기와 온도 조절이 자유롭고, 스타일링 
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>59,000원</span>
-- 리뷰수: 4764  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7280280575&traceid=V0-153&itemId=18585910708&vendorItemId=80480829716)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7280280575&traceid=V0-153&itemId=18585910708&vendorItemId=80480829716)
 
 ---
 
@@ -158,7 +165,8 @@ JMW 드라이기는 바람세기와 온도 조절이 자유롭고, 스타일링 
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>84,000원</span>
-- 리뷰수: 4764  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=22172899&traceid=V0-153&itemId=86257965&vendorItemId=3146747645)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=22172899&traceid=V0-153&itemId=86257965&vendorItemId=3146747645)
 
 ---
 
@@ -175,7 +183,8 @@ JMW 드라이기는 바람세기와 온도 조절이 자유롭고, 스타일링 
 
 - 할인율과 원래가격: 즉시할인가 70%  198,000   원
 - 가격: <span style='color:red'>76,650원</span>
-- 리뷰수: 716  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7193402032&traceid=V0-153&itemId=18167244511&vendorItemId=85704029078)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7193402032&traceid=V0-153&itemId=18167244511&vendorItemId=85704029078)
 
 ---
 
@@ -192,7 +201,8 @@ JMW 드라이기는 바람세기와 온도 조절이 자유롭고, 스타일링 
 
 - 할인율과 원래가격: 28%  329,000   원
 - 가격: <span style='color:red'>76,000원</span>
-- 리뷰수: 16315  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7728131739&traceid=V0-153&itemId=19078926204&vendorItemId=81132956452)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7728131739&traceid=V0-153&itemId=19078926204&vendorItemId=81132956452)
 
 ---
 ## JMW 드라이기 구매 시 주의점

@@ -39,7 +39,8 @@ MLB모자는 자신이 좋아하는 팀의 로고가 새겨져 있어 팬심을 
 
 - 할인율과 원래가격: 67%  269,000   원
 - 가격: <span style='color:red'>19,800원</span>
-- 리뷰수: 1072  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7276969801&traceid=V0-153&itemId=18571001556&vendorItemId=85114170892)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7276969801&traceid=V0-153&itemId=18571001556&vendorItemId=85114170892)
 
 ---
 
@@ -56,7 +57,8 @@ MLB모자는 자신이 좋아하는 팀의 로고가 새겨져 있어 팬심을 
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>28,900원</span>
-- 리뷰수: 37  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7350130278&traceid=V0-153&itemId=18912228885&vendorItemId=86039592157)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7350130278&traceid=V0-153&itemId=18912228885&vendorItemId=86039592157)
 
 ---
 
@@ -73,7 +75,8 @@ MLB모자는 자신이 좋아하는 팀의 로고가 새겨져 있어 팬심을 
 
 - 할인율과 원래가격: 58%  80,000   원
 - 가격: <span style='color:red'>21,900원</span>
-- 리뷰수: 36  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7405204807&traceid=V0-153&itemId=19175285127&vendorItemId=86293326282)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7405204807&traceid=V0-153&itemId=19175285127&vendorItemId=86293326282)
 
 ---
 
@@ -90,7 +93,8 @@ MLB모자는 자신이 좋아하는 팀의 로고가 새겨져 있어 팬심을 
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>No data</span>
-- 리뷰수: 48  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6144697716&traceid=V0-153&itemId=11815579680&vendorItemId=79321058412)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6144697716&traceid=V0-153&itemId=11815579680&vendorItemId=79321058412)
 
 ---
 
@@ -107,7 +111,8 @@ MLB모자는 자신이 좋아하는 팀의 로고가 새겨져 있어 팬심을 
 
 - 할인율과 원래가격: 즉시할인가 45%  199,000   원
 - 가격: <span style='color:red'>43,800원</span>
-- 리뷰수: 229  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5417268540&traceid=V0-153&itemId=8169474803&vendorItemId=75457642512)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5417268540&traceid=V0-153&itemId=8169474803&vendorItemId=75457642512)
 
 ---
 
@@ -124,7 +129,8 @@ MLB모자는 자신이 좋아하는 팀의 로고가 새겨져 있어 팬심을 
 
 - 할인율과 원래가격: 즉시할인가 25%  383,900   원
 - 가격: <span style='color:red'>15,000원</span>
-- 리뷰수: 472  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6844662582&traceid=V0-153&itemId=16286145634&vendorItemId=83496435208)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6844662582&traceid=V0-153&itemId=16286145634&vendorItemId=83496435208)
 
 ---
 
@@ -141,7 +147,8 @@ MLB모자는 자신이 좋아하는 팀의 로고가 새겨져 있어 팬심을 
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>35,400원</span>
-- 리뷰수: 20  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6475165724&traceid=V0-153&itemId=14150126303&vendorItemId=71183017543)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6475165724&traceid=V0-153&itemId=14150126303&vendorItemId=71183017543)
 
 ---
 
@@ -158,7 +165,8 @@ MLB모자는 자신이 좋아하는 팀의 로고가 새겨져 있어 팬심을 
 
 - 할인율과 원래가격: 30%  50,000   원
 - 가격: <span style='color:red'>28,240원</span>
-- 리뷰수: 151  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5896958778&traceid=V0-153&itemId=10386032446&vendorItemId=77668091130)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5896958778&traceid=V0-153&itemId=10386032446&vendorItemId=77668091130)
 
 ---
 
@@ -175,7 +183,8 @@ MLB모자는 자신이 좋아하는 팀의 로고가 새겨져 있어 팬심을 
 
 - 할인율과 원래가격: 즉시할인가 47%  189,000   원
 - 가격: <span style='color:red'>43,800원</span>
-- 리뷰수: 629  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6581207874&traceid=V0-153&itemId=14811112108&vendorItemId=82050783489)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6581207874&traceid=V0-153&itemId=14811112108&vendorItemId=82050783489)
 
 ---
 
@@ -192,7 +201,8 @@ MLB모자는 자신이 좋아하는 팀의 로고가 새겨져 있어 팬심을 
 
 - 할인율과 원래가격: 54%  85,000   원
 - 가격: <span style='color:red'>22,000원</span>
-- 리뷰수: 30  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5613658364&traceid=V0-153&itemId=9077865255&vendorItemId=76364137146)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5613658364&traceid=V0-153&itemId=9077865255&vendorItemId=76364137146)
 
 ---
 ## MLB모자 구매 시 주의점
