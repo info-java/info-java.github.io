@@ -5,7 +5,7 @@ theme: jekyll-theme-chirpy
 
 # Change the following value to '/PROJECT_NAME' ONLY IF your site type is GitHub Pages Project sites
 # and doesn't have a custom domain.
-baseurl: "https://info-java.github.io"
+baseurl: ""
 
 # The language of the webpage › http://www.lingoes.net/en/translator/langcode.htm
 # If it has the same name as one of the files in folder `_data/locales`, the layout language will also be changed,
@@ -18,31 +18,31 @@ timezone: Asia/Shanghai
 # jekyll-seo-tag settings › https://github.com/jekyll/jekyll-seo-tag/blob/master/docs/usage.md
 # ↓ --------------------------
 
-title: 놓치지 말고 구매 # the main title
+title: 인터넷 최저가 # the main title
 
-tagline:  필수 추천, 후회 없는 구매 # it will display as the sub-title
+tagline:  분석도구를 이용한 성별, 연령별 상품 추천 # it will display as the sub-title
 
 description: >- # used by seo meta and the atom feed
   A minimal, responsive and feature-rich Jekyll theme for technical writing.
 
 # fill in the protocol & hostname for your site, e.g., 'https://username.github.io'
-url: "https://info-java.github.io"
+url: "https://shopping01.guide365.kr"
 
 github:
-  username: infojava # change to your github username
+  username: eunmi # change to your github username
 
 twitter:
-  username:  # change to your twitter username
+  username: eunmi.line # change to your twitter username
 
 social:
   # Change to your full name.
   # It will be displayed as the default author of the posts and the copyright owner in the Footer
-  name: 
-  email:  # change to your email address
+  name: eunmi.line
+  email: eunmi.line@ # change to your email address
   links:
     # The first element serves as the copyright owner's link
-    #- https://twitter.com/iLine # change to your twitter homepage
-    #- https://github.com/ # change to your github homepage
+    - https://twitter.com/EunmiLine # change to your twitter homepage
+    - https://github.com/ # change to your github homepage
     # Uncomment below to add more social links
     # - https://www.facebook.com/username
     # - https://www.linkedin.com/in/username
@@ -76,7 +76,7 @@ theme_mode: # [light|dark]
 # img_cdn: "https://chirpy-img.netlify.app"
 
 # the avatar on sidebar, support local or CORS resources
-avatar: "https://upload.wikimedia.org/wikipedia/commons/thumb/6/66/TUX_G2.svg/433px-TUX_G2.svg.png"
+avatar: "https://pbs.twimg.com/profile_images/1670313467046420480/Q-QysLkR_400x400.jpg"
 
 # boolean type, the global switch for TOC in posts.
 toc: true
