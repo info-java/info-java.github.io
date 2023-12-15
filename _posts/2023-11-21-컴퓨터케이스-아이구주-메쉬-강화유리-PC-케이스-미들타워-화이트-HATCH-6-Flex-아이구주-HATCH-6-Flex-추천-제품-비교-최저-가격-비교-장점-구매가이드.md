@@ -31,7 +31,7 @@ pin: true
 
 ## 1. 아이구주 메쉬 강화유리 PC 케이스 미들타워 화이트 HATCH 6 Flex, 아이구주 HATCH 6 Flex
 
-![컴퓨터케이스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/04/27/11/5/918d4a67-33f7-49fe-97c7-acc8e9a11661.jpg)
+[![컴퓨터케이스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/04/27/11/5/918d4a67-33f7-49fe-97c7-acc8e9a11661.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5415492767&traceid=V0-153&itemId=8161087577&vendorItemId=75449280413)
 
 
 👍 [아이구주 메쉬 강화유리 PC 케이스 미들타워 화이트 HATCH 6 Flex, 아이구주 HATCH 6 Flex <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5415492767&traceid=V0-153&itemId=8161087577&vendorItemId=75449280413) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 쓰리알시스템 미들타워 블랙 R200
 
-![컴퓨터케이스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/01/11/10/6/b2e49c48-3063-4430-b380-9906215f2a64.jpg)
+[![컴퓨터케이스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/01/11/10/6/b2e49c48-3063-4430-b380-9906215f2a64.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7056918893&traceid=V0-153&itemId=17485252627&vendorItemId=84652673104)
 
 
 👍 [쓰리알시스템 미들타워 블랙 R200 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7056918893&traceid=V0-153&itemId=17485252627&vendorItemId=84652673104) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 아이구주 메쉬 강화유리 PC 케이스 미들타워 화이트 HATCH 6 Flex, 아이구주 HATCH 6 Flex
 
-![컴퓨터케이스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/04/27/11/5/918d4a67-33f7-49fe-97c7-acc8e9a11661.jpg)
+[![컴퓨터케이스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/04/27/11/5/918d4a67-33f7-49fe-97c7-acc8e9a11661.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5415492767&traceid=V0-153&itemId=8161087577&vendorItemId=75449280413)
 
 
 👍 [아이구주 메쉬 강화유리 PC 케이스 미들타워 화이트 HATCH 6 Flex, 아이구주 HATCH 6 Flex <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5415492767&traceid=V0-153&itemId=8161087577&vendorItemId=75449280413) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 마이크로닉스 강화유리 미니 타워 케이스 화이트, EM1-Woofer
 
-![컴퓨터케이스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/njrochxy/d3fec310488a47d6936d6c4f16f938b3.jpg)
+[![컴퓨터케이스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/njrochxy/d3fec310488a47d6936d6c4f16f938b3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5884379791&traceid=V0-153&itemId=10329186178&vendorItemId=77611415720)
 
 
 👍 [마이크로닉스 강화유리 미니 타워 케이스 화이트, EM1-Woofer <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5884379791&traceid=V0-153&itemId=10329186178&vendorItemId=77611415720) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 아이구주 PRAY 30 PLUS 컴퓨터 케이스 미들타워
 
-![컴퓨터케이스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/28a5/deec0510a7c0e82e40675c6c4dca335665d233759e27d60574fd44f2f460.jpg)
+[![컴퓨터케이스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/28a5/deec0510a7c0e82e40675c6c4dca335665d233759e27d60574fd44f2f460.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6758026601&traceid=V0-153&itemId=15829662658&vendorItemId=83793752279)
 
 
 👍 [아이구주 PRAY 30 PLUS 컴퓨터 케이스 미들타워 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6758026601&traceid=V0-153&itemId=15829662658&vendorItemId=83793752279) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 아이구주 PRAY 30 PLUS 미들타워 화이트
 
-![컴퓨터케이스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/13e2/39984f89108528019570863f641d63d4c23fb46da6a58ae1600e96e8d63b.jpg)
+[![컴퓨터케이스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/13e2/39984f89108528019570863f641d63d4c23fb46da6a58ae1600e96e8d63b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6887313715&traceid=V0-153&itemId=16523878769&vendorItemId=84214058161)
 
 
 👍 [아이구주 PRAY 30 PLUS 미들타워 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6887313715&traceid=V0-153&itemId=16523878769&vendorItemId=84214058161) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. ABKO NCORE 커넬 강화유리 블랙 PC케이스
 
-![컴퓨터케이스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/259063652422600-127f9cf2-549e-44fa-85ec-cb3f170f418f.jpg)
+[![컴퓨터케이스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/259063652422600-127f9cf2-549e-44fa-85ec-cb3f170f418f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1868181639&traceid=V0-153&itemId=3175293206&vendorItemId=71162791120)
 
 
 👍 [ABKO NCORE 커넬 강화유리 블랙 PC케이스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1868181639&traceid=V0-153&itemId=3175293206&vendorItemId=71162791120) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 마이크로닉스 Master M60 메쉬 미들타워 블랙
 
-![컴퓨터케이스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/898611992639219-3936c23e-a674-4b59-8d32-6ff8ca266bcb.jpg)
+[![컴퓨터케이스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/898611992639219-3936c23e-a674-4b59-8d32-6ff8ca266bcb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5884379786&traceid=V0-153&itemId=19932749690&vendorItemId=77611415698)
 
 
 👍 [마이크로닉스 Master M60 메쉬 미들타워 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5884379786&traceid=V0-153&itemId=19932749690&vendorItemId=77611415698) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 쿨러마스터 마스터박스 컴퓨터 케이스 NR200P, NR200P(블랙)
 
-![컴퓨터케이스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/4q91pypt/010a8ec5b3b44120813b83ad28ecbdbb.jpg)
+[![컴퓨터케이스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/4q91pypt/010a8ec5b3b44120813b83ad28ecbdbb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5375369837&traceid=V0-153&itemId=7967648867&vendorItemId=75256641781)
 
 
 👍 [쿨러마스터 마스터박스 컴퓨터 케이스 NR200P, NR200P(블랙) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5375369837&traceid=V0-153&itemId=7967648867&vendorItemId=75256641781) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. ABKO NCORE 언더바 미들타워 케이스
 
-![컴퓨터케이스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/7207165274577436-1d0805a2-1c69-4f6d-a9a2-7a97b88c5046.jpg)
+[![컴퓨터케이스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/7207165274577436-1d0805a2-1c69-4f6d-a9a2-7a97b88c5046.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1333015428&traceid=V0-153&itemId=2357866304&vendorItemId=70354297351)
 
 
 👍 [ABKO NCORE 언더바 미들타워 케이스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1333015428&traceid=V0-153&itemId=2357866304&vendorItemId=70354297351) 👌 

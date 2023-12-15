@@ -37,7 +37,7 @@ pin: true
 
 ## 1. The J.P 남자 백팩 노트북 여행용 직장인 학생 가방 방수 백팩 P-1
 
-![만다리나덕백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/494b/23aac17dc25ec4d9ee28181297022a76a89f4a0f5803bbc457c71713a18f.jpg)
+[![만다리나덕백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/494b/23aac17dc25ec4d9ee28181297022a76a89f4a0f5803bbc457c71713a18f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692611599&traceid=V0-153&itemId=20575256308&vendorItemId=87650507362)
 
 
 👍 [The J.P 남자 백팩 노트북 여행용 직장인 학생 가방 방수 백팩 P-1 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692611599&traceid=V0-153&itemId=20575256308&vendorItemId=87650507362) 👌 
@@ -55,7 +55,7 @@ pin: true
 
 ## 2. 아메리칸투어리스터 MILTON2 백팩
 
-![만다리나덕백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2021/05/25/11/2/d1140af4-cf6b-4796-9938-59ac1f48162e.jpg)
+[![만다리나덕백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2021/05/25/11/2/d1140af4-cf6b-4796-9938-59ac1f48162e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5567158543&traceid=V0-153&itemId=8852872916&vendorItemId=76139966448)
 
 
 👍 [아메리칸투어리스터 MILTON2 백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5567158543&traceid=V0-153&itemId=8852872916&vendorItemId=76139966448) 👌 
@@ -73,7 +73,7 @@ pin: true
 
 ## 3. 몽크로스 WBP9929 가볍고 심플한 여성 데일리 백팩 NC경산점 몽크로스
 
-![만다리나덕백팩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/71d7/5a43b5ada0e2a06922f025342e33ecd42c0dd52efa59515beba8a1e4999d.jpg)
+[![만다리나덕백팩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/71d7/5a43b5ada0e2a06922f025342e33ecd42c0dd52efa59515beba8a1e4999d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6316719924&traceid=V0-153&itemId=13141431226&vendorItemId=80400225351)
 
 
 👍 [몽크로스 WBP9929 가볍고 심플한 여성 데일리 백팩 NC경산점 몽크로스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6316719924&traceid=V0-153&itemId=13141431226&vendorItemId=80400225351) 👌 
@@ -91,7 +91,7 @@ pin: true
 
 ## 4. 만다리나덕 만다리나덕 HUNTER VCT33651 (black) 백팩
 
-![만다리나덕백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0afc/c77ade74f6f2e5e725a24f73e50b4efece14519db4850124f952e659898e.jpg)
+[![만다리나덕백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0afc/c77ade74f6f2e5e725a24f73e50b4efece14519db4850124f952e659898e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7449800906&traceid=V0-153&itemId=19391661971&vendorItemId=86503940946)
 
 
 👍 [만다리나덕 만다리나덕 HUNTER VCT33651 (black) 백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7449800906&traceid=V0-153&itemId=19391661971&vendorItemId=86503940946) 👌 
@@ -109,7 +109,7 @@ pin: true
 
 ## 5. 아크테릭스 헬리아드 백팩 15L 등산 가방 경량 방수 대용량 남여공용, 블랙
 
-![만다리나덕백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e700/eb8d7517d1231b01fd9a4340e38d70cced59d1d526565c0540baf6cb00ff.png)
+[![만다리나덕백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e700/eb8d7517d1231b01fd9a4340e38d70cced59d1d526565c0540baf6cb00ff.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7549353579&traceid=V0-153&itemId=20703140265&vendorItemId=87384125450)
 
 
 👍 [아크테릭스 헬리아드 백팩 15L 등산 가방 경량 방수 대용량 남여공용, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7549353579&traceid=V0-153&itemId=20703140265&vendorItemId=87384125450) 👌 
@@ -127,7 +127,7 @@ pin: true
 
 ## 6. 멜렛 아이딜 초경량 데일리 백팩
 
-![만다리나덕백팩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0cd3/5510a1ffc158344b7d5467aab2ef0436fe0c4093c27bfd47a0ce1f3f0a5b.jpg)
+[![만다리나덕백팩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0cd3/5510a1ffc158344b7d5467aab2ef0436fe0c4093c27bfd47a0ce1f3f0a5b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7488831839&traceid=V0-153&itemId=19578262439&vendorItemId=86685900473)
 
 
 👍 [멜렛 아이딜 초경량 데일리 백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7488831839&traceid=V0-153&itemId=19578262439&vendorItemId=86685900473) 👌 
@@ -145,7 +145,7 @@ pin: true
 
 ## 7. 만나리나덕 백팩 만다리나덕 학생 블랙 직장인 남성 헌터 Bag 캐주얼 경량, 01
 
-![만다리나덕백팩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1956/c8d467f06abbc4b0a3c06c07fa39c00475bebcb51defd902c38da6ffa962.jpg)
+[![만다리나덕백팩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1956/c8d467f06abbc4b0a3c06c07fa39c00475bebcb51defd902c38da6ffa962.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692014407&traceid=V0-153&itemId=20572110948&vendorItemId=87647531046)
 
 
 👍 [만나리나덕 백팩 만다리나덕 학생 블랙 직장인 남성 헌터 Bag 캐주얼 경량, 01 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692014407&traceid=V0-153&itemId=20572110948&vendorItemId=87647531046) 👌 
@@ -163,7 +163,7 @@ pin: true
 
 ## 8. Zebeer 초경량 여성 백팩 가벼운 직장인 대학생 어머니 방수백팩
 
-![만다리나덕백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6441/b6e246d16c04546b7d0d25612fc369bf056b6f3dcd1b15338a8457aaaef6.png)
+[![만다리나덕백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6441/b6e246d16c04546b7d0d25612fc369bf056b6f3dcd1b15338a8457aaaef6.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7249387929&traceid=V0-153&itemId=18437081288&vendorItemId=86342140686)
 
 
 👍 [Zebeer 초경량 여성 백팩 가벼운 직장인 대학생 어머니 방수백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7249387929&traceid=V0-153&itemId=18437081288&vendorItemId=86342140686) 👌 
@@ -181,7 +181,7 @@ pin: true
 
 ## 9. 히츠오 데일리 생활방수 백팩
 
-![만다리나덕백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6fce/e44b7e6ed62a5cac35b5d69eacff64dd52b2bdfedebc4f5f90fe9b4fb996.png)
+[![만다리나덕백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6fce/e44b7e6ed62a5cac35b5d69eacff64dd52b2bdfedebc4f5f90fe9b4fb996.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7363516265&traceid=V0-153&itemId=18976872832&vendorItemId=86102298228)
 
 
 👍 [히츠오 데일리 생활방수 백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7363516265&traceid=V0-153&itemId=18976872832&vendorItemId=86102298228) 👌 
@@ -199,7 +199,7 @@ pin: true
 
 ## 10. 만나리나덕 백팩 만다리나덕 여성용 헌터 가방 여성 시티 여성백팩 남성 대학생, 11
 
-![만다리나덕백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5ba3/95e94ed963e4177341e15fb54f041b8be9e0c777c9e9984772c359485c9b.jpg)
+[![만다리나덕백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5ba3/95e94ed963e4177341e15fb54f041b8be9e0c777c9e9984772c359485c9b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692006744&traceid=V0-153&itemId=20572072572&vendorItemId=87647493157)
 
 
 👍 [만나리나덕 백팩 만다리나덕 여성용 헌터 가방 여성 시티 여성백팩 남성 대학생, 11 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692006744&traceid=V0-153&itemId=20572072572&vendorItemId=87647493157) 👌 

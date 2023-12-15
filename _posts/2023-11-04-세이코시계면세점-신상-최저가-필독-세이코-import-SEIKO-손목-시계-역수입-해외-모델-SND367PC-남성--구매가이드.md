@@ -35,7 +35,7 @@ pin: true
 
 ## 1. [세이코 import] SEIKO 손목 시계 역수입 해외 모델 SND367PC 남성 []
 
-![세이코시계면세점 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1ebe/00804d2ab614dea5a57ea31936b2c18235bf698cc1ea06eed35c72aea521.jpg)
+[![세이코시계면세점 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1ebe/00804d2ab614dea5a57ea31936b2c18235bf698cc1ea06eed35c72aea521.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6571137267&traceid=V0-153&itemId=14750377424&vendorItemId=87006193617)
 
 
 👍 [[세이코 import] SEIKO 손목 시계 역수입 해외 모델 SND367PC 남성 [] <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6571137267&traceid=V0-153&itemId=14750377424&vendorItemId=87006193617) 👌 
@@ -53,7 +53,7 @@ pin: true
 
 ## 2. 세이코5 오토매틱 재팬메이드 럭셔리 골드 콤비 맨즈 시계 SNKL47J1
 
-![세이코시계면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b397/b985e1a4156788b1364acde0dbe1344aa7c138a7ca9b59f194bfc6cfc954.jpg)
+[![세이코시계면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b397/b985e1a4156788b1364acde0dbe1344aa7c138a7ca9b59f194bfc6cfc954.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5430856987&traceid=V0-153&itemId=8229351740&vendorItemId=83528816440)
 
 
 👍 [세이코5 오토매틱 재팬메이드 럭셔리 골드 콤비 맨즈 시계 SNKL47J1 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5430856987&traceid=V0-153&itemId=8229351740&vendorItemId=83528816440) 👌 
@@ -71,7 +71,7 @@ pin: true
 
 ## 3. 알마니시계줄 티쏘해밀턴 고급가죽줄 갤럭시기어워치 밴드
 
-![세이코시계면세점 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bd34/5168acd607b0a78d93e526b2f7f0002cf3eea66abe12edd7a3306b992a83.jpg)
+[![세이코시계면세점 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bd34/5168acd607b0a78d93e526b2f7f0002cf3eea66abe12edd7a3306b992a83.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6514591094&traceid=V0-153&itemId=14404719331&vendorItemId=81648771308)
 
 
 👍 [알마니시계줄 티쏘해밀턴 고급가죽줄 갤럭시기어워치 밴드 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6514591094&traceid=V0-153&itemId=14404719331&vendorItemId=81648771308) 👌 
@@ -89,7 +89,7 @@ pin: true
 
 ## 4. 세이코 SEIKO 국내재고 세르띠에 남자 여자 가죽시계 패션시계 SWR052
 
-![세이코시계면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/eaa1/64107b9f4f761754587ff913b6bf1c622e0dbe28803113f791ce5114e1fb.jpg)
+[![세이코시계면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/eaa1/64107b9f4f761754587ff913b6bf1c622e0dbe28803113f791ce5114e1fb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6774430718&traceid=V0-153&itemId=15914262780&vendorItemId=83121719420)
 
 
 👍 [세이코 SEIKO 국내재고 세르띠에 남자 여자 가죽시계 패션시계 SWR052 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6774430718&traceid=V0-153&itemId=15914262780&vendorItemId=83121719420) 👌 
@@ -107,7 +107,7 @@ pin: true
 
 ## 5. SIARGO SG-010 펜넬 컬렉션 커플 남자 여자 가죽 손목 시계
 
-![세이코시계면세점 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1c01/6cd26bad1e89d94ab3be59d6e0effbb519be75471de6129884f2c969838a.jpg)
+[![세이코시계면세점 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1c01/6cd26bad1e89d94ab3be59d6e0effbb519be75471de6129884f2c969838a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4736631281&traceid=V0-153&itemId=6012838616&vendorItemId=79613138995)
 
 
 👍 [SIARGO SG-010 펜넬 컬렉션 커플 남자 여자 가죽 손목 시계 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4736631281&traceid=V0-153&itemId=6012838616&vendorItemId=79613138995) 👌 
@@ -125,7 +125,7 @@ pin: true
 
 ## 6. 포체플레이어 우레탄 손목시계 FP1125
 
-![세이코시계면세점 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/06/15/12/8/903ee179-2054-4ecd-a6f1-24aeda51845a.jpg)
+[![세이코시계면세점 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/06/15/12/8/903ee179-2054-4ecd-a6f1-24aeda51845a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6981367244&traceid=V0-153&itemId=20561798284&vendorItemId=86283350535)
 
 
 👍 [포체플레이어 우레탄 손목시계 FP1125 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6981367244&traceid=V0-153&itemId=20561798284&vendorItemId=86283350535) 👌 
@@ -143,7 +143,7 @@ pin: true
 
 ## 7. 타임플래닛 세이코 SSA399/SSA399J1 프리미어 시계
 
-![세이코시계면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/785d/a2662881b31bf0197ee4e3893282701a74808817e3a4776d09344cfd2b9c.jpg)
+[![세이코시계면세점 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/785d/a2662881b31bf0197ee4e3893282701a74808817e3a4776d09344cfd2b9c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6534049000&traceid=V0-153&itemId=14523151526&vendorItemId=81765842932)
 
 
 👍 [타임플래닛 세이코 SSA399/SSA399J1 프리미어 시계 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6534049000&traceid=V0-153&itemId=14523151526&vendorItemId=81765842932) 👌 
@@ -161,7 +161,7 @@ pin: true
 
 ## 8. 세이코 남성용 크로노그래프 블랙 가죽 시계 SBTR021
 
-![세이코시계면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8c65/072c99b6d36264df56172531b4aeca7a4dea6c4fc0ef796f161ee0c57fbf.jpg)
+[![세이코시계면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8c65/072c99b6d36264df56172531b4aeca7a4dea6c4fc0ef796f161ee0c57fbf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7109314671&traceid=V0-153&itemId=17768262137&vendorItemId=84932500202)
 
 
 👍 [세이코 남성용 크로노그래프 블랙 가죽 시계 SBTR021 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7109314671&traceid=V0-153&itemId=17768262137&vendorItemId=84932500202) 👌 
@@ -179,7 +179,7 @@ pin: true
 
 ## 9. TORSO 토르소 T105M 마이다스 캘린더 워치 메탈 남자 시계
 
-![세이코시계면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a144/b5c3ff6c5d5c8f872e77f361d95b727bdea8c698d4c9135cbf34ae90c6f5.jpg)
+[![세이코시계면세점 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a144/b5c3ff6c5d5c8f872e77f361d95b727bdea8c698d4c9135cbf34ae90c6f5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7310727194&traceid=V0-153&itemId=18728321790&vendorItemId=85938476681)
 
 
 👍 [TORSO 토르소 T105M 마이다스 캘린더 워치 메탈 남자 시계 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7310727194&traceid=V0-153&itemId=18728321790&vendorItemId=85938476681) 👌 
@@ -197,7 +197,7 @@ pin: true
 
 ## 10. 세이코5 재팬메이드 오토매틱 블랙 맨즈 시계 SNKE01J1
 
-![세이코시계면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fe5e/b2e8a4c255b36507fb0979bedc2bea5438849d5a44c8944aed5a961f4c93.jpg)
+[![세이코시계면세점 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fe5e/b2e8a4c255b36507fb0979bedc2bea5438849d5a44c8944aed5a961f4c93.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6853605064&traceid=V0-153&itemId=16336743484&vendorItemId=83528643702)
 
 
 👍 [세이코5 재팬메이드 오토매틱 블랙 맨즈 시계 SNKE01J1 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6853605064&traceid=V0-153&itemId=16336743484&vendorItemId=83528643702) 👌 

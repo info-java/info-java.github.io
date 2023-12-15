@@ -31,7 +31,7 @@ pin: true
 
 ## 1. 캐리어 OSCA160PSWWSD 인버터 1등급 스텐드형 공기청정 에어컨 (전국무료배송/기본설치비포함/실외기포함)
 
-![에어컨 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1020/1b745e31dbcdfa3bea3b33c21d97a12b4b60213dd373ad69b0466e262e31.jpg)
+[![에어컨 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1020/1b745e31dbcdfa3bea3b33c21d97a12b4b60213dd373ad69b0466e262e31.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7631252480&traceid=V0-153&itemId=20254484175&vendorItemId=87342326922)
 
 
 👍 [캐리어 OSCA160PSWWSD 인버터 1등급 스텐드형 공기청정 에어컨 (전국무료배송/기본설치비포함/실외기포함) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7631252480&traceid=V0-153&itemId=20254484175&vendorItemId=87342326922) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 삼성 비스포크 멀티형에어컨 멀티에어컨 Q9000 스탠드+벽걸이 인버터 2in1에어컨 투인원 실외기포함 리버시스템, 삼성 멀티형 에어컨
 
-![에어컨 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/14e8/c440087c81462e1a1ce7cc58b970c465299661351bfd3f473ed73fcdf3bf.jpg)
+[![에어컨 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/14e8/c440087c81462e1a1ce7cc58b970c465299661351bfd3f473ed73fcdf3bf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7322086842&traceid=V0-153&itemId=18781925174&vendorItemId=77172346534)
 
 
 👍 [삼성 비스포크 멀티형에어컨 멀티에어컨 Q9000 스탠드+벽걸이 인버터 2in1에어컨 투인원 실외기포함 리버시스템, 삼성 멀티형 에어컨 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7322086842&traceid=V0-153&itemId=18781925174&vendorItemId=77172346534) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 삼성에어컨 스탠드형 인버터에어컨 비스포크 Q9000 AF17B6474WZS 거실용 가정용 스탠드에어컨 실외기포함
 
-![에어컨 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4a54/1288d469eca17e4f65587097041fd6b8ffa43bd84174664a7453c2e6b728.png)
+[![에어컨 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4a54/1288d469eca17e4f65587097041fd6b8ffa43bd84174664a7453c2e6b728.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621277966&traceid=V0-153&itemId=20206465977&vendorItemId=87288244460)
 
 
 👍 [삼성에어컨 스탠드형 인버터에어컨 비스포크 Q9000 AF17B6474WZS 거실용 가정용 스탠드에어컨 실외기포함 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621277966&traceid=V0-153&itemId=20206465977&vendorItemId=87288244460) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 캐리어 OARC-0061FAWSD 2023년 최신형 인버터 벽걸이에어컨 6형 (전국무료배송/기본설치비포함/실외기포함)
 
-![에어컨 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/811f/f3479d94383108f4e6f61ab988ba63a8eb794b14f82568c01e7bcb0adb55.jpg)
+[![에어컨 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/811f/f3479d94383108f4e6f61ab988ba63a8eb794b14f82568c01e7bcb0adb55.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621494030&traceid=V0-153&itemId=20207416712&vendorItemId=85799462298)
 
 
 👍 [캐리어 OARC-0061FAWSD 2023년 최신형 인버터 벽걸이에어컨 6형 (전국무료배송/기본설치비포함/실외기포함) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621494030&traceid=V0-153&itemId=20207416712&vendorItemId=85799462298) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 23년형 최신제품 캐리어 가성비 인버터 벽걸이냉난방기 7/9/12/14/16평 실외기포함 수도권설치 가정용 업소용, 1. 7평형 (3/4등급[냉,난방])
 
-![에어컨 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6173/6b45e907bd96c2d5d8986366befdc983f9cc02d84338cd00503f46573e58.jpg)
+[![에어컨 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6173/6b45e907bd96c2d5d8986366befdc983f9cc02d84338cd00503f46573e58.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7718271748&traceid=V0-153&itemId=20707098564&vendorItemId=82731114325)
 
 
 👍 [23년형 최신제품 캐리어 가성비 인버터 벽걸이냉난방기 7/9/12/14/16평 실외기포함 수도권설치 가정용 업소용, 1. 7평형 (3/4등급[냉,난방]) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7718271748&traceid=V0-153&itemId=20707098564&vendorItemId=82731114325) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. 삼성전자 56.9㎡ + 18.7㎡ BESPOKE 무풍 슬림 홈멀티형 에어컨 일반배관형 CHAMPAGNE BEIGE AF17C5734TZRT 방문설치, 멀티형
 
-![에어컨 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/9f9ornre/e9faccf30df74f4486608bdf023e0e8b.jpg)
+[![에어컨 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/9f9ornre/e9faccf30df74f4486608bdf023e0e8b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7447984997&traceid=V0-153&itemId=19382794211&vendorItemId=86495295080)
 
 
 👍 [삼성전자 56.9㎡ + 18.7㎡ BESPOKE 무풍 슬림 홈멀티형 에어컨 일반배관형 CHAMPAGNE BEIGE AF17C5734TZRT 방문설치, 멀티형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7447984997&traceid=V0-153&itemId=19382794211&vendorItemId=86495295080) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 삼성전자 56.9㎡ BESPOKE 무풍클래식 에어컨 방문설치, AF17B7538TZT, 스탠드형, 일반배관형
 
-![에어컨 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ecac/d3027a8b4c46587e3720a86e3dbb04423b73f39d714041f329b086412f27.jpg)
+[![에어컨 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ecac/d3027a8b4c46587e3720a86e3dbb04423b73f39d714041f329b086412f27.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6656975617&traceid=V0-153&itemId=14136488391&vendorItemId=87287832128)
 
 
 👍 [삼성전자 56.9㎡ BESPOKE 무풍클래식 에어컨 방문설치, AF17B7538TZT, 스탠드형, 일반배관형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6656975617&traceid=V0-153&itemId=14136488391&vendorItemId=87287832128) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 캐리어 OSQC231AAWWSD 사계절 냉난방 스텐드 에어컨 (냉방:23평 난방:15평) (전국무료배송/기본설치비포함/실외기포함)
 
-![에어컨 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b0b7/29bd917bd90b722969b51d5aa272bca0cd79a260fa9f5a9ff6955a3405d9.jpg)
+[![에어컨 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b0b7/29bd917bd90b722969b51d5aa272bca0cd79a260fa9f5a9ff6955a3405d9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6959304625&traceid=V0-153&itemId=16936709435&vendorItemId=84114330500)
 
 
 👍 [캐리어 OSQC231AAWWSD 사계절 냉난방 스텐드 에어컨 (냉방:23평 난방:15평) (전국무료배송/기본설치비포함/실외기포함) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6959304625&traceid=V0-153&itemId=16936709435&vendorItemId=84114330500) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 삼성전자 56.9㎡ BESPOKE 스탠드형 무풍에어컨 슬림 매립배관 AF17C5734TZZ 방문설치, 매립배관형
 
-![에어컨 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/gssjm3ak/ca33210473024fe49b53f58b1548e00e.jpg)
+[![에어컨 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/gssjm3ak/ca33210473024fe49b53f58b1548e00e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7447213142&traceid=V0-153&itemId=19379366148&vendorItemId=86491945919)
 
 
 👍 [삼성전자 56.9㎡ BESPOKE 스탠드형 무풍에어컨 슬림 매립배관 AF17C5734TZZ 방문설치, 매립배관형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7447213142&traceid=V0-153&itemId=19379366148&vendorItemId=86491945919) 👌 

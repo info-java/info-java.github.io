@@ -29,7 +29,7 @@ pin: true
 
 ## 1. EXR 겨울 기모 트레이닝복 패딩 3PCS (패딩+트레이닝복SET) 아동 성인 패밀리룩
 
-![아동롱패딩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bc9a/bbd50192173cc0b19e75e0bbcba1dc7c4cd57b539a43b5d0abf94c2c202c.jpg)
+[![아동롱패딩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bc9a/bbd50192173cc0b19e75e0bbcba1dc7c4cd57b539a43b5d0abf94c2c202c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6887370083&traceid=V0-153&itemId=16524148530&vendorItemId=83711148693)
 
 
 👍 [EXR 겨울 기모 트레이닝복 패딩 3PCS (패딩+트레이닝복SET) 아동 성인 패밀리룩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6887370083&traceid=V0-153&itemId=16524148530&vendorItemId=83711148693) 👌 
@@ -48,7 +48,7 @@ pin: true
 
 ## 2. 무감각 유아 아동 키즈 주니어 어린이 아이 기본 무지 다운 경량 후드 롱 패딩 점퍼
 
-![아동롱패딩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/17df/14dbdeecfcd0ee56adeb21d140ff263b54a71ccd32274c6d9d8cdb2cb2d2.jpg)
+[![아동롱패딩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/17df/14dbdeecfcd0ee56adeb21d140ff263b54a71ccd32274c6d9d8cdb2cb2d2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7746836065&traceid=V0-153&itemId=20934668642&vendorItemId=88001291268)
 
 
 👍 [무감각 유아 아동 키즈 주니어 어린이 아이 기본 무지 다운 경량 후드 롱 패딩 점퍼 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7746836065&traceid=V0-153&itemId=20934668642&vendorItemId=88001291268) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 아이짱 아동 주니어 겨울 후드 롱 패딩점퍼
 
-![아동롱패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/21a6/1a672325112bd670abfe86faab7fd1146fdba3d2bb541744b39492cc3fb3.jpg)
+[![아동롱패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/21a6/1a672325112bd670abfe86faab7fd1146fdba3d2bb541744b39492cc3fb3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7728453937&traceid=V0-153&itemId=20760838766&vendorItemId=87828765702)
 
 
 👍 [아이짱 아동 주니어 겨울 후드 롱 패딩점퍼 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7728453937&traceid=V0-153&itemId=20760838766&vendorItemId=87828765702) 👌 
@@ -86,7 +86,7 @@ pin: true
 
 ## 4. 팬콧 아동용 베이직 롱 패딩 RKPJPW011
 
-![아동롱패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/11/07/17/9/2b4e00cb-4f26-43e0-bb06-8deb927b30af.jpg)
+[![아동롱패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/11/07/17/9/2b4e00cb-4f26-43e0-bb06-8deb927b30af.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7702353565&traceid=V0-153&itemId=20625813030&vendorItemId=87699863229)
 
 
 👍 [팬콧 아동용 베이직 롱 패딩 RKPJPW011 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7702353565&traceid=V0-153&itemId=20625813030&vendorItemId=87699863229) 👌 
@@ -105,7 +105,7 @@ pin: true
 
 ## 5. 바브키즈 카라후리스세트
 
-![아동롱패딩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2281/96bded092f630cf3a59384650df723098dfb57e13c499016abf0f804d987.jpg)
+[![아동롱패딩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2281/96bded092f630cf3a59384650df723098dfb57e13c499016abf0f804d987.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6958814111&traceid=V0-153&itemId=16934107282&vendorItemId=84487667658)
 
 
 👍 [바브키즈 카라후리스세트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6958814111&traceid=V0-153&itemId=16934107282&vendorItemId=84487667658) 👌 
@@ -124,7 +124,7 @@ pin: true
 
 ## 6. 몰리멜리 아동용 굿간지핏 구스다운 롱 패딩점퍼
 
-![아동롱패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/obfuf6oo/c3d76061b2724539a6c59a51f6b6be79.jpg)
+[![아동롱패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/obfuf6oo/c3d76061b2724539a6c59a51f6b6be79.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6792372470&traceid=V0-153&itemId=16006836398&vendorItemId=83211692444)
 
 
 👍 [몰리멜리 아동용 굿간지핏 구스다운 롱 패딩점퍼 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6792372470&traceid=V0-153&itemId=16006836398&vendorItemId=83211692444) 👌 
@@ -143,7 +143,7 @@ pin: true
 
 ## 7. 메이리앤 키즈 패딩 아동 주니어 경량패딩 점퍼 롱패딩 시크릿배색
 
-![아동롱패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a4c6/86ba2b7fa2fb849b45acbe22a87b7df5dac2718cccb30d82dd53be1e1118.jpg)
+[![아동롱패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a4c6/86ba2b7fa2fb849b45acbe22a87b7df5dac2718cccb30d82dd53be1e1118.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6908163805&traceid=V0-153&itemId=17233265854&vendorItemId=84836637136)
 
 
 👍 [메이리앤 키즈 패딩 아동 주니어 경량패딩 점퍼 롱패딩 시크릿배색 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6908163805&traceid=V0-153&itemId=17233265854&vendorItemId=84836637136) 👌 
@@ -162,7 +162,7 @@ pin: true
 
 ## 8. 훼르자 아동~빅사이즈 알프스점퍼 롱패딩 돕바 벤치코트
 
-![아동롱패딩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1e6f/b14155c98799349a7c3dd59500e85c038e54fb9359e4ed4f2a00ca2ea4e6.jpg)
+[![아동롱패딩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1e6f/b14155c98799349a7c3dd59500e85c038e54fb9359e4ed4f2a00ca2ea4e6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=169575831&traceid=V0-153&itemId=978952824&vendorItemId=87342123632)
 
 
 👍 [훼르자 아동~빅사이즈 알프스점퍼 롱패딩 돕바 벤치코트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=169575831&traceid=V0-153&itemId=978952824&vendorItemId=87342123632) 👌 
@@ -181,7 +181,7 @@ pin: true
 
 ## 9. 바브키즈 킵그로잉기모세트
 
-![아동롱패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/287d/4c6da11476aa081db7130953ce61b25fa176084c96fc1db1494231cf9fad.jpg)
+[![아동롱패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/287d/4c6da11476aa081db7130953ce61b25fa176084c96fc1db1494231cf9fad.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6889689939&traceid=V0-153&itemId=16537112575&vendorItemId=87554028900)
 
 
 👍 [바브키즈 킵그로잉기모세트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6889689939&traceid=V0-153&itemId=16537112575&vendorItemId=87554028900) 👌 
@@ -200,7 +200,7 @@ pin: true
 
 ## 10. 에밋 주니어용 후드패딩
 
-![아동롱패딩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8638/0121b8e65a9ac117182a6a05650d6f7e833376efd43b489b2e5a0ecf8e5b.jpg)
+[![아동롱패딩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8638/0121b8e65a9ac117182a6a05650d6f7e833376efd43b489b2e5a0ecf8e5b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7744562913&traceid=V0-153&itemId=20844667113&vendorItemId=87912273629)
 
 
 👍 [에밋 주니어용 후드패딩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7744562913&traceid=V0-153&itemId=20844667113&vendorItemId=87912273629) 👌 

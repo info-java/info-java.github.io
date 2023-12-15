@@ -35,7 +35,7 @@ pin: true
 
 ## 1. 인텔 데스크탑 NUC11ATKC2 (셀러론 N4505 WIN10 Home RAM 16GB M.2 NVMe 512GB), 기본형
 
-![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/12/20/9/6/d40d12ce-795a-48cd-b6ff-a3732c8e5648.jpg)
+[![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/12/20/9/6/d40d12ce-795a-48cd-b6ff-a3732c8e5648.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7008704561&traceid=V0-153&itemId=17215263916&vendorItemId=84387132953)
 
 
 👍 [인텔 데스크탑 NUC11ATKC2 (셀러론 N4505 WIN10 Home RAM 16GB M.2 NVMe 512GB), 기본형 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7008704561&traceid=V0-153&itemId=17215263916&vendorItemId=84387132953) 👌 
@@ -53,7 +53,7 @@ pin: true
 
 ## 2. Beelink-미니 S 윈도우즈 11 인텔 11 세대 N5095 /미니 S12 프로 N100/ PC DDR4 8GB 128GB 1TB SSD 데스크탑 게임용컴퓨터, 8GB+128GB, MINI S N5095
 
-![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0d9c/efef6d6c515a6403d91836d981ef8dd3721d284e309c1548cdcfe1d1406a.jpg)
+[![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0d9c/efef6d6c515a6403d91836d981ef8dd3721d284e309c1548cdcfe1d1406a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7328122823&traceid=V0-153&itemId=18808228408&vendorItemId=85938832475)
 
 
 👍 [Beelink-미니 S 윈도우즈 11 인텔 11 세대 N5095 /미니 S12 프로 N100/ PC DDR4 8GB 128GB 1TB SSD 데스크탑 게임용컴퓨터, 8GB+128GB, MINI S N5095 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7328122823&traceid=V0-153&itemId=18808228408&vendorItemId=85938832475) 👌 
@@ -71,7 +71,7 @@ pin: true
 
 ## 3. 한뼘 컴퓨터 미니 PC 사무용 가정용 주식용 소형 피씨 초미니 데스크탑 올인원 본체, 16GB, 256GB
 
-![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1952/9d50272c9e0fe85a549dbdcd767c343061391c910f10f384976f4fd1444f.png)
+[![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1952/9d50272c9e0fe85a549dbdcd767c343061391c910f10f384976f4fd1444f.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7195245734&traceid=V0-153&itemId=18175254287&vendorItemId=85324477186)
 
 
 👍 [한뼘 컴퓨터 미니 PC 사무용 가정용 주식용 소형 피씨 초미니 데스크탑 올인원 본체, 16GB, 256GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7195245734&traceid=V0-153&itemId=18175254287&vendorItemId=85324477186) 👌 
@@ -89,7 +89,7 @@ pin: true
 
 ## 4. 갓성비 초소형 미니PC i3 사무용 가정용 컴퓨터 본체 루컴즈 데스크탑 윈도우10
 
-![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ac44/c80f849175d69965af33f0f36df84a0d938228f56b808b6e5d6610bc148d.jpg)
+[![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ac44/c80f849175d69965af33f0f36df84a0d938228f56b808b6e5d6610bc148d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7500550593&traceid=V0-153&itemId=19633347714&vendorItemId=86739730159)
 
 
 👍 [갓성비 초소형 미니PC i3 사무용 가정용 컴퓨터 본체 루컴즈 데스크탑 윈도우10 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7500550593&traceid=V0-153&itemId=19633347714&vendorItemId=86739730159) 👌 
@@ -107,7 +107,7 @@ pin: true
 
 ## 5. 루컴즈 공간활용 미니PC 솔로탑 4세대i3 램8G SSD240G 윈도우10 듀얼모니터 연결가능
 
-![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c17b/7978d36e8bdd3b429c184d8e263e993134a195b911977ee85d9bc3d420bd.jpg)
+[![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c17b/7978d36e8bdd3b429c184d8e263e993134a195b911977ee85d9bc3d420bd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7218641692&traceid=V0-153&itemId=18287552735&vendorItemId=86832633632)
 
 
 👍 [루컴즈 공간활용 미니PC 솔로탑 4세대i3 램8G SSD240G 윈도우10 듀얼모니터 연결가능 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7218641692&traceid=V0-153&itemId=18287552735&vendorItemId=86832633632) 👌 
@@ -125,7 +125,7 @@ pin: true
 
 ## 6. 에이텍 미니 컴퓨터 1037U SSD128GB 윈10 APIMNAFB
 
-![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/71fa/6f51529e38b9568d4d33b51d5759cf7145b61f51c61ff7ff1461119a7fa6.jpg)
+[![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/71fa/6f51529e38b9568d4d33b51d5759cf7145b61f51c61ff7ff1461119a7fa6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6675533325&traceid=V0-153&itemId=15374660921&vendorItemId=82594754595)
 
 
 👍 [에이텍 미니 컴퓨터 1037U SSD128GB 윈10 APIMNAFB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6675533325&traceid=V0-153&itemId=15374660921&vendorItemId=82594754595) 👌 
@@ -143,7 +143,7 @@ pin: true
 
 ## 7. 이그닉 리트 미니PC RT-MNP00012 (i9-10900 WIN미포함 RAM 16GB NVMe 512GB), 기본형
 
-![미니pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/sqmppecb/acb7c7fee237431d9e85bb3ada5093ce.jpg)
+[![미니pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/sqmppecb/acb7c7fee237431d9e85bb3ada5093ce.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6473296993&traceid=V0-153&itemId=14138086481&vendorItemId=81384801857)
 
 
 👍 [이그닉 리트 미니PC RT-MNP00012 (i9-10900 WIN미포함 RAM 16GB NVMe 512GB), 기본형 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6473296993&traceid=V0-153&itemId=14138086481&vendorItemId=81384801857) 👌 
@@ -161,7 +161,7 @@ pin: true
 
 ## 8. ASRock DeskMini X300 120W 더큰솔루션
 
-![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/84c1/d4fe781b3046a20b8285417bde535740f892fd5670a9a064e8d81a4d9fbf.jpg)
+[![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/84c1/d4fe781b3046a20b8285417bde535740f892fd5670a9a064e8d81a4d9fbf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7251177783&traceid=V0-153&itemId=18445964342&vendorItemId=86419973573)
 
 
 👍 [ASRock DeskMini X300 120W 더큰솔루션 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7251177783&traceid=V0-153&itemId=18445964342&vendorItemId=86419973573) 👌 
@@ -179,7 +179,7 @@ pin: true
 
 ## 9. 델 미니PC 옵티플렉스 3050 Micro 6세대 Core-i3 RAM 8GB~16GB SSD탑재 무선랜 지원 윈도우11 설치 중고 컴퓨터, 05.Core-i3/16GB/512GB+500GB
 
-![미니pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/04da/2d19f60c062e4013585a00ae7b8e7c4750d3af076f3184aea9bebcd79cdc.jpg)
+[![미니pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/04da/2d19f60c062e4013585a00ae7b8e7c4750d3af076f3184aea9bebcd79cdc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7266352099&traceid=V0-153&itemId=18520512050&vendorItemId=85659175754)
 
 
 👍 [델 미니PC 옵티플렉스 3050 Micro 6세대 Core-i3 RAM 8GB~16GB SSD탑재 무선랜 지원 윈도우11 설치 중고 컴퓨터, 05.Core-i3/16GB/512GB+500GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7266352099&traceid=V0-153&itemId=18520512050&vendorItemId=85659175754) 👌 
@@ -197,7 +197,7 @@ pin: true
 
 ## 10. 애즈락 데스크 미니PC DESKMINI X300 (라이젠3 4350G WIN10 Home RAM 8GB), NVMe 128GB, HDD 1TB, RAM 8GB
 
-![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/345d/4340fdadd6c2ade3a9345081694cfe5e1e336b6f0ae7b44cc5872109a717.jpg)
+[![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/345d/4340fdadd6c2ade3a9345081694cfe5e1e336b6f0ae7b44cc5872109a717.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5275575658&traceid=V0-153&itemId=7531860700&vendorItemId=87129025538)
 
 
 👍 [애즈락 데스크 미니PC DESKMINI X300 (라이젠3 4350G WIN10 Home RAM 8GB), NVMe 128GB, HDD 1TB, RAM 8GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5275575658&traceid=V0-153&itemId=7531860700&vendorItemId=87129025538) 👌 

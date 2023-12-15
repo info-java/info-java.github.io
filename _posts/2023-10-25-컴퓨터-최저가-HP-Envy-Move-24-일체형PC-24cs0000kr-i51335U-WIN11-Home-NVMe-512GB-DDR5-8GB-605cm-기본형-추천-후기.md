@@ -35,7 +35,7 @@ pin: true
 
 ## 1. HP Envy Move 24 일체형PC 24-cs0000kr (i5-1335U WIN11 Home NVMe 512GB DDR5 8GB 60.5cm), 기본형
 
-![컴퓨터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/10/05/10/5/b4041245-f260-4c05-a38b-705525c6ff7b.jpg)
+[![컴퓨터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/10/05/10/5/b4041245-f260-4c05-a38b-705525c6ff7b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7634477383&traceid=V0-153&itemId=20269831282&vendorItemId=87356992114)
 
 
 👍 [HP Envy Move 24 일체형PC 24-cs0000kr (i5-1335U WIN11 Home NVMe 512GB DDR5 8GB 60.5cm), 기본형 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7634477383&traceid=V0-153&itemId=20269831282&vendorItemId=87356992114) 👌 
@@ -53,7 +53,7 @@ pin: true
 
 ## 2. 피씨오브플레이어 컴퓨터 게이밍 조립컴퓨터 올인원 풀세트 모니터포함 고사양PC 오버워치 피파, 기본형, 풀세트 01번
 
-![컴퓨터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/51da/32a84176d334f8d2002d5e55cb71f3fdea31a7f5ad1cbf34bc4f9d438e5e.png)
+[![컴퓨터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/51da/32a84176d334f8d2002d5e55cb71f3fdea31a7f5ad1cbf34bc4f9d438e5e.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7342370420&traceid=V0-153&itemId=18874812284&vendorItemId=81729017725)
 
 
 👍 [피씨오브플레이어 컴퓨터 게이밍 조립컴퓨터 올인원 풀세트 모니터포함 고사양PC 오버워치 피파, 기본형, 풀세트 01번 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7342370420&traceid=V0-153&itemId=18874812284&vendorItemId=81729017725) 👌 
@@ -71,7 +71,7 @@ pin: true
 
 ## 3. 고사양 i7 갓성비 대용량 1TB SSD장착 디아블로4 배그 롤 피파4 오버워치 조립 게이밍 컴퓨터 GTX1060 본체 PC
 
-![컴퓨터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fb75/6638b2c9eb02072c3532c62673c91f3b65ef2e39dcebda27ebb408a4419c.jpg)
+[![컴퓨터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fb75/6638b2c9eb02072c3532c62673c91f3b65ef2e39dcebda27ebb408a4419c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7308223400&traceid=V0-153&itemId=18716919132&vendorItemId=87161997737)
 
 
 👍 [고사양 i7 갓성비 대용량 1TB SSD장착 디아블로4 배그 롤 피파4 오버워치 조립 게이밍 컴퓨터 GTX1060 본체 PC <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7308223400&traceid=V0-153&itemId=18716919132&vendorItemId=87161997737) 👌 
@@ -89,7 +89,7 @@ pin: true
 
 ## 4. 삼성 컴퓨터 본체 사무용 가정용 게임용 데스크탑 HDMI지원 윈도우10, G3220/8G/SSD240+500, 삼성4세대슬림 GT520
 
-![컴퓨터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/df76/4d8fbbc0058b3f67c230121dc324df592a1eaa15c4c4505f186405e33782.jpg)
+[![컴퓨터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/df76/4d8fbbc0058b3f67c230121dc324df592a1eaa15c4c4505f186405e33782.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6731461903&traceid=V0-153&itemId=15686225867&vendorItemId=87505822963)
 
 
 👍 [삼성 컴퓨터 본체 사무용 가정용 게임용 데스크탑 HDMI지원 윈도우10, G3220/8G/SSD240+500, 삼성4세대슬림 GT520 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6731461903&traceid=V0-153&itemId=15686225867&vendorItemId=87505822963) 👌 
@@ -107,7 +107,7 @@ pin: true
 
 ## 5. 컴집 게이밍 조립식 컴퓨터 본체 배틀그라운드 디아블로4 롤 오버워치2 전문가용 건축설계 오토캐드 조립 PC, 게임용5번
 
-![컴퓨터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9e4f/f354e6e5599c1f26f439edf81c21080fb6531fe056f6212f3119fcc313f7.jpg)
+[![컴퓨터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9e4f/f354e6e5599c1f26f439edf81c21080fb6531fe056f6212f3119fcc313f7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6470469998&traceid=V0-153&itemId=14121688929&vendorItemId=86617408901)
 
 
 👍 [컴집 게이밍 조립식 컴퓨터 본체 배틀그라운드 디아블로4 롤 오버워치2 전문가용 건축설계 오토캐드 조립 PC, 게임용5번 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6470469998&traceid=V0-153&itemId=14121688929&vendorItemId=86617408901) 👌 
@@ -125,7 +125,7 @@ pin: true
 
 ## 6. 대한컴퓨터샵H148 윈도우11탑제 i5 13400F RTX4060 16GB NVME500GB고성능게이밍조립PC/배그 디아블로4 조립컴퓨터 조립PC 게이밍컴퓨터, DH148
 
-![컴퓨터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/13f5/b318c714cc418ff7ce8679fbe492e3f1871f9cfe519610e2fa12806d1c9d.png)
+[![컴퓨터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/13f5/b318c714cc418ff7ce8679fbe492e3f1871f9cfe519610e2fa12806d1c9d.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7630152482&traceid=V0-153&itemId=20248927060&vendorItemId=86613108713)
 
 
 👍 [대한컴퓨터샵H148 윈도우11탑제 i5 13400F RTX4060 16GB NVME500GB고성능게이밍조립PC/배그 디아블로4 조립컴퓨터 조립PC 게이밍컴퓨터, DH148 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7630152482&traceid=V0-153&itemId=20248927060&vendorItemId=86613108713) 👌 
@@ -143,7 +143,7 @@ pin: true
 
 ## 7. PC온스튜디오 게이밍 컴퓨터 조립PC 롤 피파 오버워치2 발로란트 서든 로스트아크 배그 아이온 게임용 데스크탑 본체, 01. 기본형, 게이밍 - 01
 
-![컴퓨터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8eac/fce6bb01be86983424da78caea9e5bb49e0a6271662be282e9b08f55f579.png)
+[![컴퓨터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8eac/fce6bb01be86983424da78caea9e5bb49e0a6271662be282e9b08f55f579.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6482844105&traceid=V0-153&itemId=14199135062&vendorItemId=85979200565)
 
 
 👍 [PC온스튜디오 게이밍 컴퓨터 조립PC 롤 피파 오버워치2 발로란트 서든 로스트아크 배그 아이온 게임용 데스크탑 본체, 01. 기본형, 게이밍 - 01 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6482844105&traceid=V0-153&itemId=14199135062&vendorItemId=85979200565) 👌 
@@ -161,7 +161,7 @@ pin: true
 
 ## 8. 바른 컴퓨터 게이밍 컴퓨터 풀세트 롤 배그 오버워치 피파 조립컴퓨터 사무용 데스크탑 PC, 모니터없음, 바른게임컴B02
 
-![컴퓨터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fdf2/b5e0fc7221203ce48fb6d56f54c79afe0378f3dde3ad2d5ec10ca60c012e.jpg)
+[![컴퓨터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fdf2/b5e0fc7221203ce48fb6d56f54c79afe0378f3dde3ad2d5ec10ca60c012e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7278547572&traceid=V0-153&itemId=18577995563&vendorItemId=72706770609)
 
 
 👍 [바른 컴퓨터 게이밍 컴퓨터 풀세트 롤 배그 오버워치 피파 조립컴퓨터 사무용 데스크탑 PC, 모니터없음, 바른게임컴B02 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7278547572&traceid=V0-153&itemId=18577995563&vendorItemId=72706770609) 👌 
@@ -179,7 +179,7 @@ pin: true
 
 ## 9. 바른컴퓨터 게이밍 컴퓨터 조립PC 본체 사무용 롤 발로란트 피파 디아블로 오버워치, 바른컴 T2
 
-![컴퓨터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/30f0/def20f22cab50c028ead73c020adfdb43b6125273773e53116b546702d24.jpg)
+[![컴퓨터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/30f0/def20f22cab50c028ead73c020adfdb43b6125273773e53116b546702d24.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7482701881&traceid=V0-153&itemId=20120872212&vendorItemId=87219025244)
 
 
 👍 [바른컴퓨터 게이밍 컴퓨터 조립PC 본체 사무용 롤 발로란트 피파 디아블로 오버워치, 바른컴 T2 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7482701881&traceid=V0-153&itemId=20120872212&vendorItemId=87219025244) 👌 
@@ -197,7 +197,7 @@ pin: true
 
 ## 10. 바른컴퓨터 게이밍 컴퓨터 풀세트 모니터포함 PC 롤 서든어택 배틀그라운드 피파, 기본형, BAF-F02
 
-![컴퓨터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/013c/5f26e06d809d3f286c06468c7e65e4d977386205809acd59de725bef603e.jpg)
+[![컴퓨터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/013c/5f26e06d809d3f286c06468c7e65e4d977386205809acd59de725bef603e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6177343298&traceid=V0-153&itemId=12100488783&vendorItemId=81601480709)
 
 
 👍 [바른컴퓨터 게이밍 컴퓨터 풀세트 모니터포함 PC 롤 서든어택 배틀그라운드 피파, 기본형, BAF-F02 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6177343298&traceid=V0-153&itemId=12100488783&vendorItemId=81601480709) 👌 

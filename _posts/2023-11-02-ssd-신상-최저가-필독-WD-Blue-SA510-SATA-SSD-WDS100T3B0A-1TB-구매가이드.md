@@ -29,7 +29,7 @@ SSD는 이러한 장점들로 인해 최근 컴퓨터의 기본 저장 장치로
 
 ## 1. WD Blue SA510 SATA SSD, WDS100T3B0A, 1TB
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4714733405027688-bc3b1626-ae94-402d-8615-8d2b7e312305.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4714733405027688-bc3b1626-ae94-402d-8615-8d2b7e312305.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6702361363&traceid=V0-153&itemId=15115812722&vendorItemId=82337605110)
 
 
 👍 [WD Blue SA510 SATA SSD, WDS100T3B0A, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6702361363&traceid=V0-153&itemId=15115812722&vendorItemId=82337605110) 👌 
@@ -47,7 +47,7 @@ SSD는 이러한 장점들로 인해 최근 컴퓨터의 기본 저장 장치로
 
 ## 2. 한창코퍼레이션 CLOUD SSD, 512GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/02/10/6/ef3129ca-26b2-4abe-8d18-895a13280584.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/02/10/6/ef3129ca-26b2-4abe-8d18-895a13280584.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196383&vendorItemId=76359688897)
 
 
 👍 [한창코퍼레이션 CLOUD SSD, 512GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196383&vendorItemId=76359688897) 👌 
@@ -65,7 +65,7 @@ SSD는 이러한 장점들로 인해 최근 컴퓨터의 기본 저장 장치로
 
 ## 3. 한창코퍼레이션 CLOUD SSD, 1TB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/02/10/6/ef3129ca-26b2-4abe-8d18-895a13280584.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/02/10/6/ef3129ca-26b2-4abe-8d18-895a13280584.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=76359688876)
 
 
 👍 [한창코퍼레이션 CLOUD SSD, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=76359688876) 👌 
@@ -83,7 +83,7 @@ SSD는 이러한 장점들로 인해 최근 컴퓨터의 기본 저장 장치로
 
 ## 4. SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470) 👌 
@@ -101,7 +101,7 @@ SSD는 이러한 장점들로 인해 최근 컴퓨터의 기본 저장 장치로
 
 ## 5. 메탈 USB SSD 메모리 충격적인 용량 2TB 폰도 지원, 1개
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f9e1/9970d7eccbab98b6447e4203ad03a31345f87a23eacb05f6cb0028a38aad.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f9e1/9970d7eccbab98b6447e4203ad03a31345f87a23eacb05f6cb0028a38aad.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5619255155&traceid=V0-153&itemId=9103762968&vendorItemId=76389940424)
 
 
 👍 [메탈 USB SSD 메모리 충격적인 용량 2TB 폰도 지원, 1개 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5619255155&traceid=V0-153&itemId=9103762968&vendorItemId=76389940424) 👌 
@@ -119,7 +119,7 @@ SSD는 이러한 장점들로 인해 최근 컴퓨터의 기본 저장 장치로
 
 ## 6. WD My Passport 휴대용 외장하드 + 파우치, 2TB, 화이트
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/916089530128704-b691476f-d915-4c71-a520-d7336c548af2.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/916089530128704-b691476f-d915-4c71-a520-d7336c548af2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1238087073&traceid=V0-153&itemId=98239738&vendorItemId=3179136951)
 
 
 👍 [WD My Passport 휴대용 외장하드 + 파우치, 2TB, 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1238087073&traceid=V0-153&itemId=98239738&vendorItemId=3179136951) 👌 
@@ -137,7 +137,7 @@ SSD는 이러한 장점들로 인해 최근 컴퓨터의 기본 저장 장치로
 
 ## 7. 삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1b30/e20905ef7189a56efae34f5bdc9789c0820dd89c6a74f3493a2c15fdd0d1.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1b30/e20905ef7189a56efae34f5bdc9789c0820dd89c6a74f3493a2c15fdd0d1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=77937063047)
 
 
 👍 [삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=77937063047) 👌 
@@ -155,7 +155,7 @@ SSD는 이러한 장점들로 인해 최근 컴퓨터의 기본 저장 장치로
 
 ## 8. 삼성전자 공식인증 SSD 870QVO 1TB/2TB/4TB/8TB MZ-77Q1T0BW MZ-77Q2T0BW MZ-77Q4T0BW MZ-77Q8T0BW 정품, 1TB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0795/142c144b7ec3d27bac1e8c005cdd28aafe995327bca0d1f838189b07350c.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0795/142c144b7ec3d27bac1e8c005cdd28aafe995327bca0d1f838189b07350c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6262044184&traceid=V0-153&itemId=12756049099&vendorItemId=87113563977)
 
 
 👍 [삼성전자 공식인증 SSD 870QVO 1TB/2TB/4TB/8TB MZ-77Q1T0BW MZ-77Q2T0BW MZ-77Q4T0BW MZ-77Q8T0BW 정품, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6262044184&traceid=V0-153&itemId=12756049099&vendorItemId=87113563977) 👌 
@@ -173,7 +173,7 @@ SSD는 이러한 장점들로 인해 최근 컴퓨터의 기본 저장 장치로
 
 ## 9. 마이크론 Crucial P3 Plus M.2 NVMe SSD 2TB 대원씨티에스
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f187/ef1c8f3d18096460dd2c6acc6460c997799f98513c3b21376f9fb3dc2ce7.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f187/ef1c8f3d18096460dd2c6acc6460c997799f98513c3b21376f9fb3dc2ce7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6838183257&traceid=V0-153&itemId=16252863086&vendorItemId=83446015557)
 
 
 👍 [마이크론 Crucial P3 Plus M.2 NVMe SSD 2TB 대원씨티에스 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6838183257&traceid=V0-153&itemId=16252863086&vendorItemId=83446015557) 👌 
@@ -191,7 +191,7 @@ SSD는 이러한 장점들로 인해 최근 컴퓨터의 기본 저장 장치로
 
 ## 10. 삼성전자 870 EVO SSD, 1TB, MZ-77E1T0
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7c92/a18fa43f711ae7cdb01b825c77afe2d4131c4b377c38019173dee982c03f.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7c92/a18fa43f711ae7cdb01b825c77afe2d4131c4b377c38019173dee982c03f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=83637034647)
 
 
 👍 [삼성전자 870 EVO SSD, 1TB, MZ-77E1T0 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=83637034647) 👌 

@@ -33,7 +33,7 @@ pin: true
 
 ## 1. MSI 지포스 GTX 1660 SUPER 벤투스 S OC 그래픽카드 D6 6GB, N1660SVX
 
-![그래픽카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ceb8/09a448467edb45b696f194a0586f39ee13c92d20c1e446a6090cddd4da7d.jpg)
+[![그래픽카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ceb8/09a448467edb45b696f194a0586f39ee13c92d20c1e446a6090cddd4da7d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1637460930&traceid=V0-153&itemId=2792644622&vendorItemId=85847945796)
 
 
 👍 [MSI 지포스 GTX 1660 SUPER 벤투스 S OC 그래픽카드 D6 6GB, N1660SVX <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1637460930&traceid=V0-153&itemId=2792644622&vendorItemId=85847945796) 👌 
@@ -51,7 +51,7 @@ pin: true
 
 ## 2. GTX1060 3GB D5 OC 3G갤럭시 게이밍 그래픽카드 지포스 고사양 엔비디아
 
-![그래픽카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0a11/c3eec6022e9fa5bc99f4f873e2bc951ba4511823e69db33ae4af7bee566c.jpg)
+[![그래픽카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0a11/c3eec6022e9fa5bc99f4f873e2bc951ba4511823e69db33ae4af7bee566c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6555587163&traceid=V0-153&itemId=14652326752&vendorItemId=81893599192)
 
 
 👍 [GTX1060 3GB D5 OC 3G갤럭시 게이밍 그래픽카드 지포스 고사양 엔비디아 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6555587163&traceid=V0-153&itemId=14652326752&vendorItemId=81893599192) 👌 
@@ -69,7 +69,7 @@ pin: true
 
 ## 3. 티피링크 Wi Fi 6 블루투스 5.0 PCIe 랜카드 데스크탑용, Archer TX3000E
 
-![그래픽카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/dihqqmvg/ea1c6554d05341d1a9e0834f8528e32c.jpg)
+[![그래픽카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/dihqqmvg/ea1c6554d05341d1a9e0834f8528e32c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4735857931&traceid=V0-153&itemId=6010591869&vendorItemId=73308323479)
 
 
 👍 [티피링크 Wi Fi 6 블루투스 5.0 PCIe 랜카드 데스크탑용, Archer TX3000E <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4735857931&traceid=V0-153&itemId=6010591869&vendorItemId=73308323479) 👌 
@@ -87,7 +87,7 @@ pin: true
 
 ## 4. MSI 지포스 RTX 3060 벤투스 2X OC D6 12GB 그래픽카드 (MSI코리아)
 
-![그래픽카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7d13/b73a0856da680b510833492fb00e1f49aebbadc1501d07215cfadc689d3e.jpg)
+[![그래픽카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7d13/b73a0856da680b510833492fb00e1f49aebbadc1501d07215cfadc689d3e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6610517747&traceid=V0-153&itemId=18985380701&vendorItemId=86388031055)
 
 
 👍 [MSI 지포스 RTX 3060 벤투스 2X OC D6 12GB 그래픽카드 (MSI코리아) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6610517747&traceid=V0-153&itemId=18985380701&vendorItemId=86388031055) 👌 
@@ -105,7 +105,7 @@ pin: true
 
 ## 5. 제이엠지 씨파운드(CPOUND) 서멀구리스 CPU/써멀/방열, 5g
 
-![그래픽카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c874/71e1e5ff1c65cfffff561ff3e0d553ddc4b3646e25e2eeca51b74d14d20f.jpg)
+[![그래픽카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c874/71e1e5ff1c65cfffff561ff3e0d553ddc4b3646e25e2eeca51b74d14d20f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6540968739&traceid=V0-153&itemId=14563124259&vendorItemId=81805383792)
 
 
 👍 [제이엠지 씨파운드(CPOUND) 서멀구리스 CPU/써멀/방열, 5g <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6540968739&traceid=V0-153&itemId=14563124259&vendorItemId=81805383792) 👌 
@@ -123,7 +123,7 @@ pin: true
 
 ## 6. 티피링크 기가비트 PCIe Express 네트워크 어댑터 랜카드 데스크탑용, TG-3468
 
-![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/01/24/9/3/6428eda9-2fd9-4c11-9197-85ddb551d1cc.jpg)
+[![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/01/24/9/3/6428eda9-2fd9-4c11-9197-85ddb551d1cc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6303980407&traceid=V0-153&itemId=13050714200&vendorItemId=80313522789)
 
 
 👍 [티피링크 기가비트 PCIe Express 네트워크 어댑터 랜카드 데스크탑용, TG-3468 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6303980407&traceid=V0-153&itemId=13050714200&vendorItemId=80313522789) 👌 
@@ -141,7 +141,7 @@ pin: true
 
 ## 7. XFX 라데온 RX 6600 SWFT 210 CORE D6 8GB AMD 그래픽카드
 
-![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a659/6007f67ebfc0800b8df6aee9e73cc4d16f01f853283cb83571518871d117.jpeg)
+[![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a659/6007f67ebfc0800b8df6aee9e73cc4d16f01f853283cb83571518871d117.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7645963764&traceid=V0-153&itemId=20330130149&vendorItemId=86839641710)
 
 
 👍 [XFX 라데온 RX 6600 SWFT 210 CORE D6 8GB AMD 그래픽카드 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7645963764&traceid=V0-153&itemId=20330130149&vendorItemId=86839641710) 👌 
@@ -159,7 +159,7 @@ pin: true
 
 ## 8. STCOM 지포스 RTX 2060 SUPER D6 8GB 그래픽카드
 
-![그래픽카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/aa20/f5aebb2425db5c1fad46ef1edb7adf18255a084315383a26acc833c7afec.jpg)
+[![그래픽카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/aa20/f5aebb2425db5c1fad46ef1edb7adf18255a084315383a26acc833c7afec.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7622892707&traceid=V0-153&itemId=20214358357&vendorItemId=87350099493)
 
 
 👍 [STCOM 지포스 RTX 2060 SUPER D6 8GB 그래픽카드 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7622892707&traceid=V0-153&itemId=20214358357&vendorItemId=87350099493) 👌 
@@ -177,7 +177,7 @@ pin: true
 
 ## 9. 초텍 C타입 VGA 변환 젠더 노트북 미러링 어댑터, 상세 설명 참조, HUB-V01
 
-![그래픽카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/00da/84791b4e2bed14b0e971be39f81f3085827c73dbedbdf5637e5363be914d.jpg)
+[![그래픽카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/00da/84791b4e2bed14b0e971be39f81f3085827c73dbedbdf5637e5363be914d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4381662025&traceid=V0-153&itemId=5180684121&vendorItemId=85165842546)
 
 
 👍 [초텍 C타입 VGA 변환 젠더 노트북 미러링 어댑터, 상세 설명 참조, HUB-V01 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4381662025&traceid=V0-153&itemId=5180684121&vendorItemId=85165842546) 👌 
@@ -195,7 +195,7 @@ pin: true
 
 ## 10. 이엠텍 RTX2060 SUPER STORM X Dual D6 8GB 무상AS 24년
 
-![그래픽카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/844e/60ea342d73d822626d551194096792b4f8c67f48ada98cfa22ebf32d7b08.jpg)
+[![그래픽카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/844e/60ea342d73d822626d551194096792b4f8c67f48ada98cfa22ebf32d7b08.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6806640734&traceid=V0-153&itemId=16089818908&vendorItemId=83369485831)
 
 
 👍 [이엠텍 RTX2060 SUPER STORM X Dual D6 8GB 무상AS 24년 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6806640734&traceid=V0-153&itemId=16089818908&vendorItemId=83369485831) 👌 

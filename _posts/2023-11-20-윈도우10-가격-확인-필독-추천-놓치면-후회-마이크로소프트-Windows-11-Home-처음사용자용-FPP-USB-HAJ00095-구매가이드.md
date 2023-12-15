@@ -43,7 +43,7 @@ pin: true
 
 ## 1. 마이크로소프트 Windows 11 Home 처음사용자용 FPP USB HAJ-00095
 
-![윈도우10 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5420/881d6f9df7908ae2b8d71d5f7cb4adfc9ad106795bb945ed133967b50208.jpg)
+[![윈도우10 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5420/881d6f9df7908ae2b8d71d5f7cb4adfc9ad106795bb945ed133967b50208.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7104825343&traceid=V0-153&itemId=17744552717&vendorItemId=84909144487)
 
 
 👍 [마이크로소프트 Windows 11 Home 처음사용자용 FPP USB HAJ-00095 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7104825343&traceid=V0-153&itemId=17744552717&vendorItemId=84909144487) 👌 
@@ -61,7 +61,7 @@ pin: true
 
 ## 2. 피오플 컴퓨터 게이밍 고사양 조립PC 롤 서든어택 배틀그라운드 피파 사무용, 하드1TB 추가, B550M
 
-![윈도우10 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7ba7/c3fcf7df897b0b1acd8b3ccf9dca1016492fd7eb50aa3cfbbc4f045d65d0.png)
+[![윈도우10 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7ba7/c3fcf7df897b0b1acd8b3ccf9dca1016492fd7eb50aa3cfbbc4f045d65d0.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6283714582&traceid=V0-153&itemId=12915325118&vendorItemId=81616955350)
 
 
 👍 [피오플 컴퓨터 게이밍 고사양 조립PC 롤 서든어택 배틀그라운드 피파 사무용, 하드1TB 추가, B550M <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6283714582&traceid=V0-153&itemId=12915325118&vendorItemId=81616955350) 👌 
@@ -79,7 +79,7 @@ pin: true
 
 ## 3. MS Windows 11 Home FPP(USB)
 
-![윈도우10 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/caf2/701e09f8eb0f8190027ff64b0072d321018ee3a3ca17dcab80685e6cac54.jpg)
+[![윈도우10 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/caf2/701e09f8eb0f8190027ff64b0072d321018ee3a3ca17dcab80685e6cac54.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7493482149&traceid=V0-153&itemId=19599050561&vendorItemId=82862486790)
 
 
 👍 [MS Windows 11 Home FPP(USB) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7493482149&traceid=V0-153&itemId=19599050561&vendorItemId=82862486790) 👌 
@@ -97,7 +97,7 @@ pin: true
 
 ## 4. 마이크로소프트 Windows 10 Home FPP RS3
 
-![윈도우10 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b4ef/688cbca72b358c86552cd260d6f9cf6f94161e3c766c910147be538a76dc.jpg)
+[![윈도우10 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b4ef/688cbca72b358c86552cd260d6f9cf6f94161e3c766c910147be538a76dc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5300197319&traceid=V0-153&itemId=7651721953&vendorItemId=70139206043)
 
 
 👍 [마이크로소프트 Windows 10 Home FPP RS3 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5300197319&traceid=V0-153&itemId=7651721953&vendorItemId=70139206043) 👌 
@@ -115,7 +115,7 @@ pin: true
 
 ## 5. 컴집 윈도우정품 게이밍 조립식 컴퓨터 본체 배틀그라운드 디아블로4 롤 오버워치2 고성능 인텔 라이젠 조립 PC, HDD 2TB 추가, CZ - 21
 
-![윈도우10 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/73ea/9e07b90032d2cd13aefa5da7e48aceb962b0439e6f65fbc4c4d876562177.jpg)
+[![윈도우10 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/73ea/9e07b90032d2cd13aefa5da7e48aceb962b0439e6f65fbc4c4d876562177.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7578868286&traceid=V0-153&itemId=20002404085&vendorItemId=87099480207)
 
 
 👍 [컴집 윈도우정품 게이밍 조립식 컴퓨터 본체 배틀그라운드 디아블로4 롤 오버워치2 고성능 인텔 라이젠 조립 PC, HDD 2TB 추가, CZ - 21 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7578868286&traceid=V0-153&itemId=20002404085&vendorItemId=87099480207) 👌 
@@ -133,7 +133,7 @@ pin: true
 
 ## 6. 게이밍 조립 PC 본체 인텔 i5 GTX1660Super 게임용 컴퓨터 윈10, HDD500G 추가, 2. i5-7500 16G 240G GTX1660S
 
-![윈도우10 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4ef0/3accdd9e9eef642b17554cd579500240d75943002d56e2411aa3d0c3b09c.jpg)
+[![윈도우10 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4ef0/3accdd9e9eef642b17554cd579500240d75943002d56e2411aa3d0c3b09c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6889844328&traceid=V0-153&itemId=16537885859&vendorItemId=86053947959)
 
 
 👍 [게이밍 조립 PC 본체 인텔 i5 GTX1660Super 게임용 컴퓨터 윈10, HDD500G 추가, 2. i5-7500 16G 240G GTX1660S <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6889844328&traceid=V0-153&itemId=16537885859&vendorItemId=86053947959) 👌 
@@ -151,7 +151,7 @@ pin: true
 
 ## 7. 삼성 노트북 i5 업무 주식 포토샵 간단한게임 윈도우10 사은품 증정, 블랙/실버, NT370E5J, i5 4210, 240GB, 8GB, Win10 Pro
 
-![윈도우10 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3086/b2d8947a675cd04e402f949d473de96ed287c03f5f25a4fa747b14f632f7.jpg)
+[![윈도우10 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3086/b2d8947a675cd04e402f949d473de96ed287c03f5f25a4fa747b14f632f7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7718176880&traceid=V0-153&itemId=20706689821&vendorItemId=87291708838)
 
 
 👍 [삼성 노트북 i5 업무 주식 포토샵 간단한게임 윈도우10 사은품 증정, 블랙/실버, NT370E5J, i5 4210, 240GB, 8GB, Win10 Pro <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7718176880&traceid=V0-153&itemId=20706689821&vendorItemId=87291708838) 👌 
@@ -169,7 +169,7 @@ pin: true
 
 ## 8. 마이크로소프트 Windows 11 Home 처음사용자용 (FPP/USB/한글)
 
-![윈도우10 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bcbb/0b051637e6c5ce6e0a3f16480a85a5b39baf5b762c2b6685b828c70f45e2.jpg)
+[![윈도우10 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bcbb/0b051637e6c5ce6e0a3f16480a85a5b39baf5b762c2b6685b828c70f45e2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7675082463&traceid=V0-153&itemId=20484905252&vendorItemId=87563745298)
 
 
 👍 [마이크로소프트 Windows 11 Home 처음사용자용 (FPP/USB/한글) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7675082463&traceid=V0-153&itemId=20484905252&vendorItemId=87563745298) 👌 
@@ -187,7 +187,7 @@ pin: true
 
 ## 9. 컴집 인텔 12세대 13세대 윈도우정품 게이밍 조립식 컴퓨터 본체 배틀그라운드 디아블로4 롤 스팀 고성능 조립 PC, MD-21, 03 1TB SSD 변경
 
-![윈도우10 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f9e6/11220e1b36b471ebcbb4e9d087b5c6a9b18c2d74950d24048a8f8d66b0a2.jpg)
+[![윈도우10 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f9e6/11220e1b36b471ebcbb4e9d087b5c6a9b18c2d74950d24048a8f8d66b0a2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7597721752&traceid=V0-153&itemId=20090987643&vendorItemId=87141728149)
 
 
 👍 [컴집 인텔 12세대 13세대 윈도우정품 게이밍 조립식 컴퓨터 본체 배틀그라운드 디아블로4 롤 스팀 고성능 조립 PC, MD-21, 03 1TB SSD 변경 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7597721752&traceid=V0-153&itemId=20090987643&vendorItemId=87141728149) 👌 
@@ -205,7 +205,7 @@ pin: true
 
 ## 10. 마이크로소프트 윈도우 10 프로 FPP
 
-![윈도우10 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d40d/44fb7e739cec2a7cfb66ba824bdc7ad9a255ada74c6076708c8fde353597.jpg)
+[![윈도우10 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d40d/44fb7e739cec2a7cfb66ba824bdc7ad9a255ada74c6076708c8fde353597.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=46946841&traceid=V0-153&itemId=166410433&vendorItemId=74389056779)
 
 
 👍 [마이크로소프트 윈도우 10 프로 FPP <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=46946841&traceid=V0-153&itemId=166410433&vendorItemId=74389056779) 👌 

@@ -19,7 +19,7 @@ pin: true
 
 ## 1. 모트모트 오리지널 텐미닛 플래너 HALF YEAR, 화이트
 
-![스터디플래너 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4423531493831987-7509a270-357f-4d82-8ecc-a321c72aaef2.jpg)
+[![스터디플래너 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4423531493831987-7509a270-357f-4d82-8ecc-a321c72aaef2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1290972181&traceid=V0-153&itemId=2302102930&vendorItemId=70299022170)
 
 
 👍 [모트모트 오리지널 텐미닛 플래너 HALF YEAR, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1290972181&traceid=V0-153&itemId=2302102930&vendorItemId=70299022170) 👌 
@@ -38,7 +38,7 @@ pin: true
 
 ## 2. 아이코닉 헤이데이 스터디 플래너 6개월, Beige, 상세설명 참조
 
-![스터디플래너 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/hnjhneqd/29a718e290e343179ef6bbde9141b7ab.jpg)
+[![스터디플래너 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/hnjhneqd/29a718e290e343179ef6bbde9141b7ab.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5510782542&traceid=V0-153&itemId=8589054790&vendorItemId=75876324421)
 
 
 👍 [아이코닉 헤이데이 스터디 플래너 6개월, Beige, 상세설명 참조 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5510782542&traceid=V0-153&itemId=8589054790&vendorItemId=75876324421) 👌 
@@ -57,7 +57,7 @@ pin: true
 
 ## 3. 핑크풋 3000 공부습관 스터디 플래너 4종 세트, 핑크, 네이비, 옐로우, 퍼플
 
-![스터디플래너 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/03/05/11/9/da5aa3fc-ea76-4c8e-862d-320783e38fcf.jpg)
+[![스터디플래너 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/03/05/11/9/da5aa3fc-ea76-4c8e-862d-320783e38fcf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1329883121&traceid=V0-153&itemId=2353798507&vendorItemId=70350276133)
 
 
 👍 [핑크풋 3000 공부습관 스터디 플래너 4종 세트, 핑크, 네이비, 옐로우, 퍼플 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1329883121&traceid=V0-153&itemId=2353798507&vendorItemId=70350276133) 👌 
@@ -76,7 +76,7 @@ pin: true
 
 ## 4. 모트모트 컬러칩 텐미닛 플래너 HALF YEAR, 다크호스
 
-![스터디플래너 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4437959808876020-5a302626-7a74-4a27-ae8a-d27d2b4ac0dc.jpg)
+[![스터디플래너 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4437959808876020-5a302626-7a74-4a27-ae8a-d27d2b4ac0dc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1290984300&traceid=V0-153&itemId=2302117607&vendorItemId=70299022162)
 
 
 👍 [모트모트 컬러칩 텐미닛 플래너 HALF YEAR, 다크호스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1290984300&traceid=V0-153&itemId=2302117607&vendorItemId=70299022162) 👌 
@@ -95,7 +95,7 @@ pin: true
 
 ## 5. 더메모 100일 스터디 플래너 공부플래너 학습플래너 학생플래너, sky
 
-![스터디플래너 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cd31/b799429054eedc54df3a5ab9faa270048d75c86658f12f6057ffb034680c.jpg)
+[![스터디플래너 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cd31/b799429054eedc54df3a5ab9faa270048d75c86658f12f6057ffb034680c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=311440309&traceid=V0-153&itemId=939057511&vendorItemId=70416766663)
 
 
 👍 [더메모 100일 스터디 플래너 공부플래너 학습플래너 학생플래너, sky <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=311440309&traceid=V0-153&itemId=939057511&vendorItemId=70416766663) 👌 
@@ -114,7 +114,7 @@ pin: true
 
 ## 6. 초등 스터디플래너 방학 생활계획표 공부계획표 체크리스트 저학년 고학년 탈부착 수정 가능, 곰돌이 하루일과표
 
-![스터디플래너 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/52db/1ba73e525c765def2292dcec0267640e85851896404eeab632e9a2eef4f4.jpg)
+[![스터디플래너 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/52db/1ba73e525c765def2292dcec0267640e85851896404eeab632e9a2eef4f4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6013362989&traceid=V0-153&itemId=10914848670&vendorItemId=78194655866)
 
 
 👍 [초등 스터디플래너 방학 생활계획표 공부계획표 체크리스트 저학년 고학년 탈부착 수정 가능, 곰돌이 하루일과표 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6013362989&traceid=V0-153&itemId=10914848670&vendorItemId=78194655866) 👌 
@@ -133,7 +133,7 @@ pin: true
 
 ## 7. 인디고 혼자공부 메타 스터디 플래너 6개월용, 그레이, 1개
 
-![스터디플래너 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/291d/17a01c10bfc1dced7e0784cf8fceaf370abf01a2a3761b35f41173ab4203.jpg)
+[![스터디플래너 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/291d/17a01c10bfc1dced7e0784cf8fceaf370abf01a2a3761b35f41173ab4203.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6305699737&traceid=V0-153&itemId=13061739573&vendorItemId=80201792006)
 
 
 👍 [인디고 혼자공부 메타 스터디 플래너 6개월용, 그레이, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6305699737&traceid=V0-153&itemId=13061739573&vendorItemId=80201792006) 👌 
@@ -152,7 +152,7 @@ pin: true
 
 ## 8. 모트모트 텐미닛 플래너 31DAYS 6p, 화이트
 
-![스터디플래너 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2021/05/10/9/9/e787fc48-71d9-48cf-9be4-e780e871c8bc.jpg)
+[![스터디플래너 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2021/05/10/9/9/e787fc48-71d9-48cf-9be4-e780e871c8bc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5484499797&traceid=V0-153&itemId=8471138766&vendorItemId=75758701811)
 
 
 👍 [모트모트 텐미닛 플래너 31DAYS 6p, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5484499797&traceid=V0-153&itemId=8471138766&vendorItemId=75758701811) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 9. 스프링북 랜드 오리지널 - 화이트 5EA (스퀘어드)
 
-![스터디플래너 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/eb53/e56af57208af26b9c3be68de516e5cbec085ad6a610435a8a074bc2ea6e2.jpg)
+[![스터디플래너 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/eb53/e56af57208af26b9c3be68de516e5cbec085ad6a610435a8a074bc2ea6e2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7313119446&traceid=V0-153&itemId=18739532392&vendorItemId=70560968849)
 
 
 👍 [스프링북 랜드 오리지널 - 화이트 5EA (스퀘어드) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7313119446&traceid=V0-153&itemId=18739532392&vendorItemId=70560968849) 👌 
@@ -190,7 +190,7 @@ pin: true
 
 ## 10. 대시앤도트 스테이 스터디 100일 플래너, 화이트 테이블
 
-![스터디플래너 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/puvt5hqk/e8f3978843574e779a47f306395edd35.jpg)
+[![스터디플래너 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/puvt5hqk/e8f3978843574e779a47f306395edd35.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7158235194&traceid=V0-153&itemId=18010132696&vendorItemId=85165758609)
 
 
 👍 [대시앤도트 스테이 스터디 100일 플래너, 화이트 테이블 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7158235194&traceid=V0-153&itemId=18010132696&vendorItemId=85165758609) 👌 

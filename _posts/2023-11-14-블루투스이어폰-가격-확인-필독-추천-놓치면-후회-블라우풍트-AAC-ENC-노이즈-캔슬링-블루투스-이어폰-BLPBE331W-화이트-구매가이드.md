@@ -31,7 +31,7 @@ pin: true
 
 ## 1. 블라우풍트 AAC ENC 노이즈 캔슬링 블루투스 이어폰 BLP-BE331W, 화이트
 
-![블루투스이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/00a6/54c86d39dd4149a276455d8e0524d7fb5c89bb63d49632b53a81704698ec.jpg)
+[![블루투스이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/00a6/54c86d39dd4149a276455d8e0524d7fb5c89bb63d49632b53a81704698ec.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6577822503&traceid=V0-153&itemId=14790109733&vendorItemId=82676212615)
 
 
 👍 [블라우풍트 AAC ENC 노이즈 캔슬링 블루투스 이어폰 BLP-BE331W, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6577822503&traceid=V0-153&itemId=14790109733&vendorItemId=82676212615) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. QCY 블루투스이어폰, 화이트, t13app
 
-![블루투스이어폰 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/8488529899314438-79efdbc9-574a-476e-a78b-dd8fbaf34d20.jpg)
+[![블루투스이어폰 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/8488529899314438-79efdbc9-574a-476e-a78b-dd8fbaf34d20.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6572373138&traceid=V0-153&itemId=14758141683&vendorItemId=78636438577)
 
 
 👍 [QCY 블루투스이어폰, 화이트, t13app <font color=red> 지금 바로 클릭!! 회원가격 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6572373138&traceid=V0-153&itemId=14758141683&vendorItemId=78636438577) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. Mankiw맨큐 귀걸이형 무선 블루투스 이어폰 버튼식 X28, 블랙, Mankiw X28
 
-![블루투스이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/00b6/26d555af4b7a23b9eb74d9a2e1439a96ae2d76dc4cd1383b57a0d0cc459b.jpg)
+[![블루투스이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/00b6/26d555af4b7a23b9eb74d9a2e1439a96ae2d76dc4cd1383b57a0d0cc459b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7299891765&traceid=V0-153&itemId=18677797570&vendorItemId=86379224603)
 
 
 👍 [Mankiw맨큐 귀걸이형 무선 블루투스 이어폰 버튼식 X28, 블랙, Mankiw X28 <font color=red> 지금 바로 클릭!! 회원가격 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7299891765&traceid=V0-153&itemId=18677797570&vendorItemId=86379224603) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 블라우풍트 AAC ENC 노이즈 캔슬링 블루투스 이어폰 BLP-BE331W, 화이트
 
-![블루투스이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/00a6/54c86d39dd4149a276455d8e0524d7fb5c89bb63d49632b53a81704698ec.jpg)
+[![블루투스이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/00a6/54c86d39dd4149a276455d8e0524d7fb5c89bb63d49632b53a81704698ec.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6577822503&traceid=V0-153&itemId=14790109733&vendorItemId=82676212615)
 
 
 👍 [블라우풍트 AAC ENC 노이즈 캔슬링 블루투스 이어폰 BLP-BE331W, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6577822503&traceid=V0-153&itemId=14790109733&vendorItemId=82676212615) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. [이어프리G5]22년형 최신형 골전도 블루투스이어폰/APT-X HD탑재/USB-C타입/멀티페어링/IPX방수, 이어프리 G5
 
-![블루투스이어폰 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7c84/5ae17f73fe1ca0eba61464154a473d88ee5dcc3730fa8f1bf976698519b1.jpg)
+[![블루투스이어폰 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7c84/5ae17f73fe1ca0eba61464154a473d88ee5dcc3730fa8f1bf976698519b1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5526336113&traceid=V0-153&itemId=8658996857&vendorItemId=75946178928)
 
 
 👍 [[이어프리G5]22년형 최신형 골전도 블루투스이어폰/APT-X HD탑재/USB-C타입/멀티페어링/IPX방수, 이어프리 G5 <font color=red> 지금 바로 클릭!! 회원가격 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5526336113&traceid=V0-153&itemId=8658996857&vendorItemId=75946178928) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 펭카 커널형 버즈 무선 블루투스 이어폰, PB1004, 퍼플
 
-![블루투스이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2727712484324036-6b1b4c26-2873-432d-96f0-ea4599d80745.jpg)
+[![블루투스이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2727712484324036-6b1b4c26-2873-432d-96f0-ea4599d80745.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6408661241&traceid=V0-153&itemId=13734234300&vendorItemId=85514693709)
 
 
 👍 [펭카 커널형 버즈 무선 블루투스 이어폰, PB1004, 퍼플 <font color=red> 지금 바로 클릭!! 회원가격 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6408661241&traceid=V0-153&itemId=13734234300&vendorItemId=85514693709) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. 삼성전자 갤럭시 버즈2, 라벤더, SM-R177N
 
-![블루투스이어폰 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c6cd/4c05447d7e819cbcfebf24ee4d31bcf29829c8d8a9c9e2e1cb5e266ba9ed.jpg)
+[![블루투스이어폰 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c6cd/4c05447d7e819cbcfebf24ee4d31bcf29829c8d8a9c9e2e1cb5e266ba9ed.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7000607828&traceid=V0-153&itemId=10910028228&vendorItemId=78480572960)
 
 
 👍 [삼성전자 갤럭시 버즈2, 라벤더, SM-R177N <font color=red> 지금 바로 클릭!! 회원가격 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7000607828&traceid=V0-153&itemId=10910028228&vendorItemId=78480572960) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. LG전자 톤플러스 메리디안사운드 블루투스 이어폰, HBS-PL5, 매트블랙
 
-![블루투스이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fa1b/f1d5e88e6c36e297adadd99b44c311aba83d8e645582198bf33b8d2f4e17.jpg)
+[![블루투스이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fa1b/f1d5e88e6c36e297adadd99b44c311aba83d8e645582198bf33b8d2f4e17.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925392665&traceid=V0-153&itemId=3268719814&vendorItemId=86281178805)
 
 
 👍 [LG전자 톤플러스 메리디안사운드 블루투스 이어폰, HBS-PL5, 매트블랙 <font color=red> 지금 바로 클릭!! 회원가격 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925392665&traceid=V0-153&itemId=3268719814&vendorItemId=86281178805) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 브리츠 무통증 듀얼마이크 블루투스 이어셋, BE-Vtalk7
 
-![블루투스이어폰 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2018/10/26/3764708476/12a3c55f-4b4e-4629-8092-76a29629a508.jpg)
+[![블루투스이어폰 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2018/10/26/3764708476/12a3c55f-4b4e-4629-8092-76a29629a508.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=101923594&traceid=V0-153&itemId=310566430&vendorItemId=3764708476)
 
 
 👍 [브리츠 무통증 듀얼마이크 블루투스 이어셋, BE-Vtalk7 <font color=red> 지금 바로 클릭!! 회원가격 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=101923594&traceid=V0-153&itemId=310566430&vendorItemId=3764708476) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. QCY 블루투스 이어폰, 블랙, t13app
 
-![블루투스이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/8480788605212626-6346df1b-4fb2-4251-ae2f-db1f70c74dbc.jpg)
+[![블루투스이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/8480788605212626-6346df1b-4fb2-4251-ae2f-db1f70c74dbc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6572373138&traceid=V0-153&itemId=14758165637&vendorItemId=78982228495)
 
 
 👍 [QCY 블루투스 이어폰, 블랙, t13app <font color=red> 지금 바로 클릭!! 회원가격 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6572373138&traceid=V0-153&itemId=14758165637&vendorItemId=78982228495) 👌 

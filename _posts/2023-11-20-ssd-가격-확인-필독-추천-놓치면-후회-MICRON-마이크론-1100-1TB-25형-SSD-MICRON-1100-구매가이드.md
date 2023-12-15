@@ -35,7 +35,7 @@ HDD는 데이터를 효율적으로 저장하기 위해 조각 모음 작업을 
 
 ## 1. MICRON 마이크론 1100 1TB 2.5형 SSD, MICRON 1100
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2344/3ad909b6fc10f5e1715f4ba9c26a50f273d88f90a6a0f2f7873fc3cbf284.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2344/3ad909b6fc10f5e1715f4ba9c26a50f273d88f90a6a0f2f7873fc3cbf284.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7455501589&traceid=V0-153&itemId=19420157808&vendorItemId=86531676709)
 
 
 👍 [MICRON 마이크론 1100 1TB 2.5형 SSD, MICRON 1100 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7455501589&traceid=V0-153&itemId=19420157808&vendorItemId=86531676709) 👌 
@@ -53,7 +53,7 @@ HDD는 데이터를 효율적으로 저장하기 위해 조각 모음 작업을 
 
 ## 2. SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457) 👌 
@@ -71,7 +71,7 @@ HDD는 데이터를 효율적으로 저장하기 위해 조각 모음 작업을 
 
 ## 3. 샌디스크 Portable SSD E30, 1TB, 블랙
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 
 👍 [샌디스크 Portable SSD E30, 1TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486) 👌 
@@ -89,7 +89,7 @@ HDD는 데이터를 효율적으로 저장하기 위해 조각 모음 작업을 
 
 ## 4. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 2TB, 블랙
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8934/cab407497525303883e55848bb414656e943e6f880a3be5bd522f027f99f.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8934/cab407497525303883e55848bb414656e943e6f880a3be5bd522f027f99f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 2TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234) 👌 
@@ -107,7 +107,7 @@ HDD는 데이터를 효율적으로 저장하기 위해 조각 모음 작업을 
 
 ## 5. 칸비오 어드밴스 2세대 외장하드 DTCA20 + 파우치, 2TB, 에메랄드 그린(외장하드)
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/x7xomgnb/c60b1706f8b04d5ba179d34827281605.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/x7xomgnb/c60b1706f8b04d5ba179d34827281605.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4798364374&traceid=V0-153&itemId=6467750535&vendorItemId=73762179664)
 
 
 👍 [칸비오 어드밴스 2세대 외장하드 DTCA20 + 파우치, 2TB, 에메랄드 그린(외장하드) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4798364374&traceid=V0-153&itemId=6467750535&vendorItemId=73762179664) 👌 
@@ -125,7 +125,7 @@ HDD는 데이터를 효율적으로 저장하기 위해 조각 모음 작업을 
 
 ## 6. 씨게이트 뉴 파이어쿠다 520 Gen4 NVMe SSD, STA028, 2048GB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/04/28/14/9/8f10c7f1-4958-47f4-8412-cc7c53b0750d.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/04/28/14/9/8f10c7f1-4958-47f4-8412-cc7c53b0750d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7300099500&traceid=V0-153&itemId=18678767114&vendorItemId=85812988742)
 
 
 👍 [씨게이트 뉴 파이어쿠다 520 Gen4 NVMe SSD, STA028, 2048GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7300099500&traceid=V0-153&itemId=18678767114&vendorItemId=85812988742) 👌 
@@ -143,7 +143,7 @@ HDD는 데이터를 효율적으로 저장하기 위해 조각 모음 작업을 
 
 ## 7. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB, 블랙, 1테라
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1d70/b63f40dc37dfac3222057184d16325f4e2aacc09a91c0f61e1ba2bbfa0e4.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1d70/b63f40dc37dfac3222057184d16325f4e2aacc09a91c0f61e1ba2bbfa0e4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB, 블랙, 1테라 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757) 👌 
@@ -161,7 +161,7 @@ HDD는 데이터를 효율적으로 저장하기 위해 조각 모음 작업을 
 
 ## 8. 마이크론 Crucial SSD, MX500, 500GB
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d47b/30eed425d1021df581e7c58cde64d592bdc757325cf2637360c10a8e2d67.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d47b/30eed425d1021df581e7c58cde64d592bdc757325cf2637360c10a8e2d67.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=76736776641)
 
 
 👍 [마이크론 Crucial SSD, MX500, 500GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=76736776641) 👌 
@@ -179,7 +179,7 @@ HDD는 데이터를 효율적으로 저장하기 위해 조각 모음 작업을 
 
 ## 9. 메탈 USB SSD 메모리 충격적인 용량 2TB 폰도 지원, 1개
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f9e1/9970d7eccbab98b6447e4203ad03a31345f87a23eacb05f6cb0028a38aad.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f9e1/9970d7eccbab98b6447e4203ad03a31345f87a23eacb05f6cb0028a38aad.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5619255155&traceid=V0-153&itemId=9103762968&vendorItemId=76389940424)
 
 
 👍 [메탈 USB SSD 메모리 충격적인 용량 2TB 폰도 지원, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5619255155&traceid=V0-153&itemId=9103762968&vendorItemId=76389940424) 👌 
@@ -197,7 +197,7 @@ HDD는 데이터를 효율적으로 저장하기 위해 조각 모음 작업을 
 
 ## 10. 기가바이트 GIGABYTE 480GB SATA, SSD
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9067/82168fa2754e7e4ea88e833ef0c038eca81ddc7d80115e989bd5065cd022.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9067/82168fa2754e7e4ea88e833ef0c038eca81ddc7d80115e989bd5065cd022.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7503358475&traceid=V0-153&itemId=19645527992&vendorItemId=86751641583)
 
 
 👍 [기가바이트 GIGABYTE 480GB SATA, SSD <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7503358475&traceid=V0-153&itemId=19645527992&vendorItemId=86751641583) 👌 

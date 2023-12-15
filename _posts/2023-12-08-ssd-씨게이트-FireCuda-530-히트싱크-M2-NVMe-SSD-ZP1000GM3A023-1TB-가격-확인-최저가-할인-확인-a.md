@@ -33,7 +33,7 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 ## 1. 씨게이트 FireCuda 530 히트싱크 M.2 NVMe SSD, ZP1000GM3A023, 1TB
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2021/10/14/12/9/7dd4bcfc-430b-44ff-b64f-20eb470232fb.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2021/10/14/12/9/7dd4bcfc-430b-44ff-b64f-20eb470232fb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6123921459&traceid=V0-153&itemId=11628014726&vendorItemId=78902632420)
 
 
 👍 [씨게이트 FireCuda 530 히트싱크 M.2 NVMe SSD, ZP1000GM3A023, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6123921459&traceid=V0-153&itemId=11628014726&vendorItemId=78902632420) 👌 
@@ -51,7 +51,7 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 ## 2. 삼성전자 870 EVO SSD, 1TB, MZ-77E1T0
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253)
 
 
 👍 [삼성전자 870 EVO SSD, 1TB, MZ-77E1T0 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253) 👌 
@@ -69,7 +69,7 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 ## 3. SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457) 👌 
@@ -87,7 +87,7 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 ## 4. 샌디스크 Portable SSD E30, 1TB, 블랙
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1224/3664de3053f640ba87c3e3b21a733ae7d75cc2fc5e5a718ee128177db02b.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1224/3664de3053f640ba87c3e3b21a733ae7d75cc2fc5e5a718ee128177db02b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 
 👍 [샌디스크 Portable SSD E30, 1TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486) 👌 
@@ -105,7 +105,7 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 ## 5. 씨게이트 파이어쿠다 530 M.2 NVMe SSD, ZP2000GM3A013, 2TB
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/tckucxxu/6ee9b73041e0434680e73e0d2e7492b1.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/tckucxxu/6ee9b73041e0434680e73e0d2e7492b1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6005286157&traceid=V0-153&itemId=10881359640&vendorItemId=78902715147)
 
 
 👍 [씨게이트 파이어쿠다 530 M.2 NVMe SSD, ZP2000GM3A013, 2TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6005286157&traceid=V0-153&itemId=10881359640&vendorItemId=78902715147) 👌 
@@ -123,7 +123,7 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 ## 6. 마이크론 Crucial P3 M.2 NVMe SSD 2TB 대원CTS
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9b7f/3bb86298e33c93ab78d71797008a271e9f9269cabd7d26aaaade4d3a3186.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9b7f/3bb86298e33c93ab78d71797008a271e9f9269cabd7d26aaaade4d3a3186.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6905585793&traceid=V0-153&itemId=16623011746&vendorItemId=83807585380)
 
 
 👍 [마이크론 Crucial P3 M.2 NVMe SSD 2TB 대원CTS <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6905585793&traceid=V0-153&itemId=16623011746&vendorItemId=83807585380) 👌 
@@ -141,7 +141,7 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 ## 7. SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470) 👌 
@@ -159,7 +159,7 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 ## 8. 삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c8c1/90a10a7394baaa4c43000ee5e7849c570e9409d2b3e220beab5b56a566b2.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c8c1/90a10a7394baaa4c43000ee5e7849c570e9409d2b3e220beab5b56a566b2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=82998196838)
 
 
 👍 [삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=82998196838) 👌 
@@ -177,7 +177,7 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 ## 9. M.2 SATA PCI-Express SSD 변환 아답터 카드 데스크탑용 NVMe NGFF 겸용 LS-PCIE-M2SATAN
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1052095564379969-83ffebd9-3696-4721-b5d5-1d1af3124f8b.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1052095564379969-83ffebd9-3696-4721-b5d5-1d1af3124f8b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5240021570&traceid=V0-153&itemId=7399007603&vendorItemId=74690028855)
 
 
 👍 [M.2 SATA PCI-Express SSD 변환 아답터 카드 데스크탑용 NVMe NGFF 겸용 LS-PCIE-M2SATAN <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5240021570&traceid=V0-153&itemId=7399007603&vendorItemId=74690028855) 👌 
@@ -195,7 +195,7 @@ SSD는 HDD에 비해 전력 소비가 적습니다. 이는 SSD가 HDD에 비해 
 
 ## 10. 샌디스크 Portable SSD E30, 2TB, 블랙
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/921f/c1e158b6c54f023e0b93569b888b775684b603a9a2f9126bf131f067fed5.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/921f/c1e158b6c54f023e0b93569b888b775684b603a9a2f9126bf131f067fed5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=11128687210&vendorItemId=86717153439)
 
 
 👍 [샌디스크 Portable SSD E30, 2TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=11128687210&vendorItemId=86717153439) 👌 

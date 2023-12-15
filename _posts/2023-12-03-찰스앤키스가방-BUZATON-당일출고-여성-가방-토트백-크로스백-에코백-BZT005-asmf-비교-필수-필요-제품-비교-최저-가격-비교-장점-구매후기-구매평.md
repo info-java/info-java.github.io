@@ -37,7 +37,7 @@ pin: true
 
 ## 2. [찰스앤키스] 한소희가방 페트라 커브 숄더백 CK2-20271059 CHARLES & KEITH 싱가포르 여성가방
 
-![찰스앤키스가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7d7b/92333db678c5f2fe10151597ca5adf68d0923d88c4d669fc2697706e84e6.jpg)
+[![찰스앤키스가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7d7b/92333db678c5f2fe10151597ca5adf68d0923d88c4d669fc2697706e84e6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7485401175&traceid=V0-153&itemId=19562859672&vendorItemId=87257051307)
 
 
 👍 [[찰스앤키스] 한소희가방 페트라 커브 숄더백 CK2-20271059 CHARLES & KEITH 싱가포르 여성가방 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7485401175&traceid=V0-153&itemId=19562859672&vendorItemId=87257051307) 👌 
@@ -55,7 +55,7 @@ pin: true
 
 ## 3. 찰스앤키스 퀄티드 체인 보부상 숄더 백 연예인 출근 가방 CK2-20671559
 
-![찰스앤키스가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3388/16aece6bc7ef9775fca6eba3e9379d765f0307175a6d7c30d86f4cb95f9b.jpeg)
+[![찰스앤키스가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3388/16aece6bc7ef9775fca6eba3e9379d765f0307175a6d7c30d86f4cb95f9b.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7516028082&traceid=V0-153&itemId=19703526273&vendorItemId=87749700326)
 
 
 👍 [찰스앤키스 퀄티드 체인 보부상 숄더 백 연예인 출근 가방 CK2-20671559 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7516028082&traceid=V0-153&itemId=19703526273&vendorItemId=87749700326) 👌 
@@ -73,7 +73,7 @@ pin: true
 
 ## 4. 찰스앤키스 가을 여성가방 CHARLES＆KEITH CK2-30781394-1 여성다이아몬드체인숄더백
 
-![찰스앤키스가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/20f1/2c354f50365e84e7f2b1e225684c6aa6df8f78735d97a716fd021632e97d.jpg)
+[![찰스앤키스가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/20f1/2c354f50365e84e7f2b1e225684c6aa6df8f78735d97a716fd021632e97d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7588682023&traceid=V0-153&itemId=20048789361&vendorItemId=87145065832)
 
 
 👍 [찰스앤키스 가을 여성가방 CHARLES＆KEITH CK2-30781394-1 여성다이아몬드체인숄더백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7588682023&traceid=V0-153&itemId=20048789361&vendorItemId=87145065832) 👌 
@@ -91,7 +91,7 @@ pin: true
 
 ## 5. 티니캐리 여성 숄더백 가죽 락 플랩 가방
 
-![찰스앤키스가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3689/f006a84c2e591a3abddcad222d41582344d6aefc60d20beed4732cb85672.png)
+[![찰스앤키스가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3689/f006a84c2e591a3abddcad222d41582344d6aefc60d20beed4732cb85672.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7551527047&traceid=V0-153&itemId=19874323916&vendorItemId=86961275833)
 
 
 👍 [티니캐리 여성 숄더백 가죽 락 플랩 가방 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7551527047&traceid=V0-153&itemId=19874323916&vendorItemId=86961275833) 👌 
@@ -109,7 +109,7 @@ pin: true
 
 ## 6. 리빙차트 여성 여대생 숄더백 쇼퍼백 가방
 
-![찰스앤키스가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0a65/ab5cf787502b55737ec22421d0069a74f13f7c0d9cf29ed9b44b5a69c9d0.jpg)
+[![찰스앤키스가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0a65/ab5cf787502b55737ec22421d0069a74f13f7c0d9cf29ed9b44b5a69c9d0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1469001384&traceid=V0-153&itemId=2525940600&vendorItemId=70518747786)
 
 
 👍 [리빙차트 여성 여대생 숄더백 쇼퍼백 가방 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1469001384&traceid=V0-153&itemId=2525940600&vendorItemId=70518747786) 👌 
@@ -127,7 +127,7 @@ pin: true
 
 ## 7. 찰스앤키스 가방 데일리백 숄더 크로스 가죽 여성 미니백 소형
 
-![찰스앤키스가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/08ad/10b93cbf66ed0c670d4642a5b5a7ff327dea6a93d92a0fcac687c2e8f26d.jpg)
+[![찰스앤키스가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/08ad/10b93cbf66ed0c670d4642a5b5a7ff327dea6a93d92a0fcac687c2e8f26d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7748749561&traceid=V0-153&itemId=20866292431&vendorItemId=87933643265)
 
 
 👍 [찰스앤키스 가방 데일리백 숄더 크로스 가죽 여성 미니백 소형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7748749561&traceid=V0-153&itemId=20866292431&vendorItemId=87933643265) 👌 
@@ -145,7 +145,7 @@ pin: true
 
 ## 8. 찰스앤키스 CHARLES＆KEITH CK2-80781400 메탈 버클 두부백 숄더백 7colors
 
-![찰스앤키스가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0b35/c444a7989573b07694fbea24928096a5521b6aab8ff5582edca5c4420a09.jpg)
+[![찰스앤키스가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0b35/c444a7989573b07694fbea24928096a5521b6aab8ff5582edca5c4420a09.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7590572219&traceid=V0-153&itemId=20057331146&vendorItemId=87153400246)
 
 
 👍 [찰스앤키스 CHARLES＆KEITH CK2-80781400 메탈 버클 두부백 숄더백 7colors <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7590572219&traceid=V0-153&itemId=20057331146&vendorItemId=87153400246) 👌 
@@ -163,7 +163,7 @@ pin: true
 
 ## 9. MORIT 여성 슬링 크로스백
 
-![찰스앤키스가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/64ca/15d7ebf839f8a548ba402e4bc4b0c8bfbfd1ed7d2cd9e9bcdec63345cb39.jpg)
+[![찰스앤키스가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/64ca/15d7ebf839f8a548ba402e4bc4b0c8bfbfd1ed7d2cd9e9bcdec63345cb39.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6784443873&traceid=V0-153&itemId=15966242372&vendorItemId=83172446668)
 
 
 👍 [MORIT 여성 슬링 크로스백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6784443873&traceid=V0-153&itemId=15966242372&vendorItemId=83172446668) 👌 
@@ -181,7 +181,7 @@ pin: true
 
 ## 10. CHARLES&KEITH Women's Shoulder Bag CK2-20151059 large capacity
 
-![찰스앤키스가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9629/5b3f1a0a2375ccaeea111aceb83a72de6bcfde78ed590d6daf9bdf4c2632.jpg)
+[![찰스앤키스가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9629/5b3f1a0a2375ccaeea111aceb83a72de6bcfde78ed590d6daf9bdf4c2632.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7181533040&traceid=V0-153&itemId=18113216471&vendorItemId=85264746598)
 
 
 👍 [CHARLES&KEITH Women's Shoulder Bag CK2-20151059 large capacity <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7181533040&traceid=V0-153&itemId=18113216471&vendorItemId=85264746598) 👌 

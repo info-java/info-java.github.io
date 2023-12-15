@@ -31,7 +31,7 @@ pin: true
 
 ## 1. neko_nyangko 양털 1인 소파 카페 라운지 거실 쇼파, 앙증맞은 모조 스웨이드 그레이
 
-![1인용리클라이너 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7e73/1059a9b3c8a86709e111af28fe1d5706ea7168252c72be53412119af232d.jpg)
+[![1인용리클라이너 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7e73/1059a9b3c8a86709e111af28fe1d5706ea7168252c72be53412119af232d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7695693893&traceid=V0-153&itemId=20590894614&vendorItemId=87665785944)
 
 
 👍 [neko_nyangko 양털 1인 소파 카페 라운지 거실 쇼파, 앙증맞은 모조 스웨이드 그레이 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7695693893&traceid=V0-153&itemId=20590894614&vendorItemId=87665785944) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 클렙튼 무중력 전동 1인 리클라이너 8005 방문설치, 라이트브라운
 
-![1인용리클라이너 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/08/25/12/5/faac08e5-9ccd-40af-b217-358c7ddce592.jpg)
+[![1인용리클라이너 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/08/25/12/5/faac08e5-9ccd-40af-b217-358c7ddce592.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2005443388&traceid=V0-153&itemId=3412049074&vendorItemId=71398640792)
 
 
 👍 [클렙튼 무중력 전동 1인 리클라이너 8005 방문설치, 라이트브라운 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2005443388&traceid=V0-153&itemId=3412049074&vendorItemId=71398640792) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. [즉시할인+할인쿠폰][스칸디아]포근 1인용 기능성 패브릭 리클라이너 소파, 오트밀
 
-![1인용리클라이너 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/34ed/e57ba9d8047068dd1fb033a30119364079e3ddae96e1cf7b36afb5ec7de1.jpg)
+[![1인용리클라이너 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/34ed/e57ba9d8047068dd1fb033a30119364079e3ddae96e1cf7b36afb5ec7de1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7477684309&traceid=V0-153&itemId=19525656977&vendorItemId=86634216927)
 
 
 👍 [[즉시할인+할인쿠폰][스칸디아]포근 1인용 기능성 패브릭 리클라이너 소파, 오트밀 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7477684309&traceid=V0-153&itemId=19525656977&vendorItemId=86634216927) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. [무중력1인 안락쿠션] 파로마 마스 아쿠아텍스 리클라이너 1인소파 쇼파 임산부수유의자 마약의자, 파우더블루
 
-![1인용리클라이너 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e6f2/59fbcec7c1a509329f7d7ab73b02d8f90f25e807e61724a981ad27f6a802.jpg)
+[![1인용리클라이너 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e6f2/59fbcec7c1a509329f7d7ab73b02d8f90f25e807e61724a981ad27f6a802.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6673615595&traceid=V0-153&itemId=15363284462&vendorItemId=82626044966)
 
 
 👍 [[무중력1인 안락쿠션] 파로마 마스 아쿠아텍스 리클라이너 1인소파 쇼파 임산부수유의자 마약의자, 파우더블루 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6673615595&traceid=V0-153&itemId=15363284462&vendorItemId=82626044966) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 클로벤 수동 1인용 리클라이너 소파, 하운드투스체크패턴
 
-![1인용리클라이너 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/96da/749b73aa8877f7a2f71007eed3bd1179cf6c5dca767f7a1061fa4734abbf.jpg)
+[![1인용리클라이너 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/96da/749b73aa8877f7a2f71007eed3bd1179cf6c5dca767f7a1061fa4734abbf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7699249136&traceid=V0-153&itemId=20609441849&vendorItemId=87683966239)
 
 
 👍 [클로벤 수동 1인용 리클라이너 소파, 하운드투스체크패턴 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7699249136&traceid=V0-153&itemId=20609441849&vendorItemId=87683966239) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. [국내당일발송]에피하임 1인용 리클라이너쇼파 수유의자 안락의자, 리클라이너(단품), 블랙
 
-![1인용리클라이너 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6ec2/b9e809af5813dc81504241dc08a85b20dd52c6006401f385fdd4f85ff824.jpg)
+[![1인용리클라이너 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6ec2/b9e809af5813dc81504241dc08a85b20dd52c6006401f385fdd4f85ff824.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5659813518&traceid=V0-153&itemId=9286068963&vendorItemId=83056908643)
 
 
 👍 [[국내당일발송]에피하임 1인용 리클라이너쇼파 수유의자 안락의자, 리클라이너(단품), 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5659813518&traceid=V0-153&itemId=9286068963&vendorItemId=83056908643) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. 삼익가구 휴이 프리미엄 1인용 전동 원터치 리클라이너 소파, 아이보리
 
-![1인용리클라이너 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5f6e/ceb33f7e86675bbd5665c051af79578badecedfef9aa8414cd57979c20f6.jpg)
+[![1인용리클라이너 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5f6e/ceb33f7e86675bbd5665c051af79578badecedfef9aa8414cd57979c20f6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7088096630&traceid=V0-153&itemId=17654987756&vendorItemId=84820535065)
 
 
 👍 [삼익가구 휴이 프리미엄 1인용 전동 원터치 리클라이너 소파, 아이보리 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7088096630&traceid=V0-153&itemId=17654987756&vendorItemId=84820535065) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. iSefoyo 1인용쇼파 패브릭 1인용 패브릭 소파 A598-117, 아이보리+발판
 
-![1인용리클라이너 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/82e6/1cab81be6517fa3ddf8c168f8e05a2e0323b7172eeefccf07f2356290263.png)
+[![1인용리클라이너 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/82e6/1cab81be6517fa3ddf8c168f8e05a2e0323b7172eeefccf07f2356290263.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7521292770&traceid=V0-153&itemId=19727001437&vendorItemId=87458741141)
 
 
 👍 [iSefoyo 1인용쇼파 패브릭 1인용 패브릭 소파 A598-117, 아이보리+발판 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7521292770&traceid=V0-153&itemId=19727001437&vendorItemId=87458741141) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 히다마리 1인용 리클라이너 소파 쏘울, 히다마리 리클라이너 쏘울
 
-![1인용리클라이너 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/02ca/6827cefd5fe7bbfce2a0481339194f0c43bcce9105bf999b3452a3fc7b25.jpg)
+[![1인용리클라이너 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/02ca/6827cefd5fe7bbfce2a0481339194f0c43bcce9105bf999b3452a3fc7b25.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1076265979&traceid=V0-153&itemId=2026651431&vendorItemId=70026224142)
 
 
 👍 [히다마리 1인용 리클라이너 소파 쏘울, 히다마리 리클라이너 쏘울 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1076265979&traceid=V0-153&itemId=2026651431&vendorItemId=70026224142) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 런칭이벤트 [삼익가구]클로디 프리미엄 1인용 전동 원터치 리클라이너 소파 수유의자 1인소파, 오트밀
 
-![1인용리클라이너 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a2b5/34fa6a9e1f4645108abc939f59fa65ff2c699cd53c146aaaf6264997c1f4.png)
+[![1인용리클라이너 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a2b5/34fa6a9e1f4645108abc939f59fa65ff2c699cd53c146aaaf6264997c1f4.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7424912366&traceid=V0-153&itemId=19271034825&vendorItemId=86359711636)
 
 
 👍 [런칭이벤트 [삼익가구]클로디 프리미엄 1인용 전동 원터치 리클라이너 소파 수유의자 1인소파, 오트밀 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7424912366&traceid=V0-153&itemId=19271034825&vendorItemId=86359711636) 👌 

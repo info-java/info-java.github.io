@@ -29,7 +29,7 @@ pin: true
 
 ## 1. EX퍼니처 게이밍 컴퓨터 PC방 중역 사무용 사무실 책상 의자 메쉬체어 TYPE-2 UPM, 블랙
 
-![사무용의자 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3939/a4de30ad0fc59416187280896356de06b56284b01810ae04e4ce6d8be1ff.jpg)
+[![사무용의자 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3939/a4de30ad0fc59416187280896356de06b56284b01810ae04e4ce6d8be1ff.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7650932692&traceid=V0-153&itemId=20357101719&vendorItemId=4603544578)
 
 
 👍 [EX퍼니처 게이밍 컴퓨터 PC방 중역 사무용 사무실 책상 의자 메쉬체어 TYPE-2 UPM, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7650932692&traceid=V0-153&itemId=20357101719&vendorItemId=4603544578) 👌 
@@ -47,7 +47,7 @@ pin: true
 
 ## 2. 체어클럽 M2 헤더형 블랙바디 메쉬의자, 블랙
 
-![사무용의자 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1806077846456684-dfa5f098-81ab-4a01-887e-dc5bd2a5d312.jpg)
+[![사무용의자 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1806077846456684-dfa5f098-81ab-4a01-887e-dc5bd2a5d312.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2420328&traceid=V0-153&itemId=11141271&vendorItemId=3016767190)
 
 
 👍 [체어클럽 M2 헤더형 블랙바디 메쉬의자, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2420328&traceid=V0-153&itemId=11141271&vendorItemId=3016767190) 👌 
@@ -65,7 +65,7 @@ pin: true
 
 ## 3. 네오체어 사무용 메쉬의자 CPS-H, 베이지
 
-![사무용의자 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4088950430767205-518ff178-a195-4393-9197-03ab75320057.jpg)
+[![사무용의자 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4088950430767205-518ff178-a195-4393-9197-03ab75320057.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6999573193&traceid=V0-153&itemId=17161506151&vendorItemId=84333950510)
 
 
 👍 [네오체어 사무용 메쉬의자 CPS-H, 베이지 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6999573193&traceid=V0-153&itemId=17161506151&vendorItemId=84333950510) 👌 
@@ -83,7 +83,7 @@ pin: true
 
 ## 4. 시디즈 T20 탭플러스 화이트쉘 메쉬의자 TNB200HF, 1개, 다크 그레이
 
-![사무용의자 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/06/23/12/4/c8e7c821-4fdb-4de4-8cc2-a46bfe96a6dc.jpg)
+[![사무용의자 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/06/23/12/4/c8e7c821-4fdb-4de4-8cc2-a46bfe96a6dc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6962918248&traceid=V0-153&itemId=16957645420&vendorItemId=70952100909)
 
 
 👍 [시디즈 T20 탭플러스 화이트쉘 메쉬의자 TNB200HF, 1개, 다크 그레이 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6962918248&traceid=V0-153&itemId=16957645420&vendorItemId=70952100909) 👌 
@@ -101,7 +101,7 @@ pin: true
 
 ## 5. 체어스코 메쉬 사무 학생 책상 컴퓨터 의자, 블랙바디 허리받침세트
 
-![사무용의자 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/12a6/32a8e0ab88b3cd83120d263abb7fd936f46b37763fb9cfa58a3bd9451f26.jpg)
+[![사무용의자 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/12a6/32a8e0ab88b3cd83120d263abb7fd936f46b37763fb9cfa58a3bd9451f26.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5465402206&traceid=V0-153&itemId=8376667166&vendorItemId=75664377678)
 
 
 👍 [체어스코 메쉬 사무 학생 책상 컴퓨터 의자, 블랙바디 허리받침세트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5465402206&traceid=V0-153&itemId=8376667166&vendorItemId=75664377678) 👌 
@@ -119,7 +119,7 @@ pin: true
 
 ## 6. 호몰 Homall 사무용의자 사무실 서재용 의자, 블랙
 
-![사무용의자 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ca4f/eeef0e783072e99cd9e3861d51874d173519018496ec08559c238544431a.jpg)
+[![사무용의자 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ca4f/eeef0e783072e99cd9e3861d51874d173519018496ec08559c238544431a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6380001304&traceid=V0-153&itemId=13551354548&vendorItemId=80804966100)
 
 
 👍 [호몰 Homall 사무용의자 사무실 서재용 의자, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6380001304&traceid=V0-153&itemId=13551354548&vendorItemId=80804966100) 👌 
@@ -137,7 +137,7 @@ pin: true
 
 ## 7. 체어스코 메쉬 사무 학생 책상 컴퓨터 의자, 블랙바디 허리받침세트
 
-![사무용의자 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/12a6/32a8e0ab88b3cd83120d263abb7fd936f46b37763fb9cfa58a3bd9451f26.jpg)
+[![사무용의자 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/12a6/32a8e0ab88b3cd83120d263abb7fd936f46b37763fb9cfa58a3bd9451f26.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5465402206&traceid=V0-153&itemId=8376667166&vendorItemId=75664377678)
 
 
 👍 [체어스코 메쉬 사무 학생 책상 컴퓨터 의자, 블랙바디 허리받침세트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5465402206&traceid=V0-153&itemId=8376667166&vendorItemId=75664377678) 👌 
@@ -155,7 +155,7 @@ pin: true
 
 ## 8. 퍼스퍼 내추럴 바른 자세 편한 메쉬 컴퓨터 책상 사무용 사무실 학생 공부 책상 의자, 블랙바디-01기본방석&T팔[기본], A패브릭-블랙
 
-![사무용의자 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ed0c/a699209b7a1fdaa727fea00c0203e3aee96093e45db57e24fbbfdf38db33.jpg)
+[![사무용의자 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ed0c/a699209b7a1fdaa727fea00c0203e3aee96093e45db57e24fbbfdf38db33.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6804997548&traceid=V0-153&itemId=16079327867&vendorItemId=83278043350)
 
 
 👍 [퍼스퍼 내추럴 바른 자세 편한 메쉬 컴퓨터 책상 사무용 사무실 학생 공부 책상 의자, 블랙바디-01기본방석&T팔[기본], A패브릭-블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6804997548&traceid=V0-153&itemId=16079327867&vendorItemId=83278043350) 👌 
@@ -173,7 +173,7 @@ pin: true
 
 ## 9. EX퍼니처 게이밍 컴퓨터 PC방 중역 사무용 사무실 책상 의자 메쉬체어 TYPE-7 PRO, 블랙
 
-![사무용의자 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/852c/945f14b4e1ea02f7d234756ef11ce639e0074e6378471bf8df54f017eca4.jpg)
+[![사무용의자 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/852c/945f14b4e1ea02f7d234756ef11ce639e0074e6378471bf8df54f017eca4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7645677274&traceid=V0-153&itemId=20328981021&vendorItemId=85969041528)
 
 
 👍 [EX퍼니처 게이밍 컴퓨터 PC방 중역 사무용 사무실 책상 의자 메쉬체어 TYPE-7 PRO, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7645677274&traceid=V0-153&itemId=20328981021&vendorItemId=85969041528) 👌 
@@ -191,7 +191,7 @@ pin: true
 
 ## 10. 16피스 컴퓨터 사무용 책상 학생 공부 사무실 의자 마틴, 블랙
 
-![사무용의자 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f907/1daf580a20ffe195ce9c45f80a99ea6ed4101a1e78c85cf1b32eff7618ba.jpg)
+[![사무용의자 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f907/1daf580a20ffe195ce9c45f80a99ea6ed4101a1e78c85cf1b32eff7618ba.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6645064070&traceid=V0-153&itemId=15205910111&vendorItemId=82427001382)
 
 
 👍 [16피스 컴퓨터 사무용 책상 학생 공부 사무실 의자 마틴, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6645064070&traceid=V0-153&itemId=15205910111&vendorItemId=82427001382) 👌 

@@ -41,7 +41,7 @@ pin: true
 
 ## 1. 쌤소나이트 레드 서류가방 BLACK 블랙/ 취업 선물 문서가방 회사원 중대형가방 노느북가방 토트백 서류가방 크로스백 숄더백 입사선물 이직선물 첫출근선물 회사원선물
 
-![빈폴가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c44d/475c42198d8ff7cb48fafde22c4743677b326b253f206ed5c9548059aa97.jpg)
+[![빈폴가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c44d/475c42198d8ff7cb48fafde22c4743677b326b253f206ed5c9548059aa97.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7716549564&traceid=V0-153&itemId=20697807871&vendorItemId=87769142193)
 
 
 👍 [쌤소나이트 레드 서류가방 BLACK 블랙/ 취업 선물 문서가방 회사원 중대형가방 노느북가방 토트백 서류가방 크로스백 숄더백 입사선물 이직선물 첫출근선물 회사원선물 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7716549564&traceid=V0-153&itemId=20697807871&vendorItemId=87769142193) 👌 
@@ -59,7 +59,7 @@ pin: true
 
 ## 2. HAMMER 여성 가방 대용량 토트백 숄더백 직장인 대학생 핸드백 엄마가방
 
-![빈폴가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5a84/9858a9d1dd2f6ea16670e53aacc39d14f75481a03c298e2f6d259c721bed.jpg)
+[![빈폴가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5a84/9858a9d1dd2f6ea16670e53aacc39d14f75481a03c298e2f6d259c721bed.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7462882109&traceid=V0-153&itemId=19455977060&vendorItemId=87694747987)
 
 
 👍 [HAMMER 여성 가방 대용량 토트백 숄더백 직장인 대학생 핸드백 엄마가방 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7462882109&traceid=V0-153&itemId=19455977060&vendorItemId=87694747987) 👌 
@@ -77,7 +77,7 @@ pin: true
 
 ## 3. [닥스정품] 여성 클래식 체크 미니 크로스백
 
-![빈폴가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b242/f79a7b4ee5403e4e50d1ab992c37360a7949aa2d29d455285f76d1960041.png)
+[![빈폴가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b242/f79a7b4ee5403e4e50d1ab992c37360a7949aa2d29d455285f76d1960041.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7344682101&traceid=V0-153&itemId=18886263716&vendorItemId=87122875993)
 
 
 👍 [[닥스정품] 여성 클래식 체크 미니 크로스백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7344682101&traceid=V0-153&itemId=18886263716&vendorItemId=87122875993) 👌 
@@ -95,7 +95,7 @@ pin: true
 
 ## 4. [빈폴ACC](BE32D3M230)베이 토트백 - 아이보리
 
-![빈폴가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cc40/f99b732b387bced07c7f419b3f6fed6a51ea27f0fc004ac7ef600ad3f2d9.jpg)
+[![빈폴가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cc40/f99b732b387bced07c7f419b3f6fed6a51ea27f0fc004ac7ef600ad3f2d9.jpg)](BE32D3M230)
 
 
 👍 [[빈폴ACC](BE32D3M230)베이 토트백 - 아이보리 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7109468952&traceid=V0-153&itemId=17768905109&vendorItemId=84933135065) 👌 
@@ -113,7 +113,7 @@ pin: true
 
 ## 5. 마르코폴로 포켓 캔버스 크로스백 MP4036
 
-![빈폴가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/63f9/5947bba1fd8f21827de89f13d4f69e1324274d4ff9f5472eea7e50c66d1c.jpg)
+[![빈폴가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/63f9/5947bba1fd8f21827de89f13d4f69e1324274d4ff9f5472eea7e50c66d1c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7716796189&traceid=V0-153&itemId=20698997198&vendorItemId=87770258605)
 
 
 👍 [마르코폴로 포켓 캔버스 크로스백 MP4036 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7716796189&traceid=V0-153&itemId=20698997198&vendorItemId=87770258605) 👌 
@@ -131,7 +131,7 @@ pin: true
 
 ## 6. 태영스토어 남성 패션 캥거루 크로스 메신저 캐주얼 백
 
-![빈폴가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b06d/7d9b2c7d4950820b3b9fc8d689a2c170ed6848e484e9151ba4a9f398568c.jpg)
+[![빈폴가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b06d/7d9b2c7d4950820b3b9fc8d689a2c170ed6848e484e9151ba4a9f398568c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6930183671&traceid=V0-153&itemId=16767151160&vendorItemId=83948425022)
 
 
 👍 [태영스토어 남성 패션 캥거루 크로스 메신저 캐주얼 백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6930183671&traceid=V0-153&itemId=16767151160&vendorItemId=83948425022) 👌 
@@ -149,7 +149,7 @@ pin: true
 
 ## 7. [빈폴ACC](BE38D3M115)조이 새들백 - 블랙
 
-![빈폴가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0dc9/56371c1b2dea7d2a19b16d561371780d8e45a3b7e3b4518456e34c02e5e8.jpg)
+[![빈폴가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0dc9/56371c1b2dea7d2a19b16d561371780d8e45a3b7e3b4518456e34c02e5e8.jpg)](BE38D3M115)
 
 
 👍 [[빈폴ACC](BE38D3M115)조이 새들백 - 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7518596261&traceid=V0-153&itemId=19715063395&vendorItemId=86819345382) 👌 
@@ -167,7 +167,7 @@ pin: true
 
 ## 8. 세인트스코트 미아 토트백
 
-![빈폴가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/p1g0ne1d/9e7314ccb4494927bc38943a3fa64775.jpg)
+[![빈폴가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/p1g0ne1d/9e7314ccb4494927bc38943a3fa64775.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6331453886&traceid=V0-153&itemId=13241132949&vendorItemId=80582563495)
 
 
 👍 [세인트스코트 미아 토트백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6331453886&traceid=V0-153&itemId=13241132949&vendorItemId=80582563495) 👌 
@@ -203,7 +203,7 @@ pin: true
 
 ## 10. [빈폴ACC](BE38A4M565)오늘 지퍼 미니백 - 블랙
 
-![빈폴가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f88b/7b2be80d640ed51e8a1ae0c88cd52fff3608ec3b32a1f5a9a0946f3aa0a6.jpg)
+[![빈폴가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f88b/7b2be80d640ed51e8a1ae0c88cd52fff3608ec3b32a1f5a9a0946f3aa0a6.jpg)](BE38A4M565)
 
 
 👍 [[빈폴ACC](BE38A4M565)오늘 지퍼 미니백 - 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7473229606&traceid=V0-153&itemId=19504440619&vendorItemId=86613483167) 👌 
